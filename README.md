@@ -35,7 +35,8 @@ Vào buổi sáng tĩnh lặng đầy, lần đầu tiên cô thấu hiểu giá
 
 Nhà của cô nằm nép mình ở lưng chừng núi.  
 Xung quanh chẳng có gì ngoài vùng hoang vu khắc nghiệt.  
-Cô chẳng có hàng xóm hay bạn thơ ấu để mà trò chuyện. Việc đến trường hay ra ngoài chơi đều bất tiện hơn mức cần thiết.  
+Cô chẳng có hàng xóm hay bạn thơ ấu để mà trò chuyện. 
+Việc đến trường hay ra ngoài chơi đều bất tiện hơn mức cần thiết.  
 Quả thật, với nguồn nước trong lành và bầu trời đầy sao, nơi ấy chất chứa biết bao kỷ niệm, vừa phiền muộn, vừa bình yên.
 
 Mà, điều đó chỉ đúng vào mùa hè thôi.  
@@ -68,14 +69,14 @@ Con mèo mẹ đã mất toàn bộ phần đầu.
 Một trong hai chú mèo con bị dây cu-roa cuốn vào quá nhiều, thân thể biến dạng đến mức không còn nhận ra được, hẳn nó đã chết ngay tức khắc.
 
 Chú mèo con còn lại, nửa khuôn mặt loang máu đỏ tươi, thở hổn hển yếu ớt như con chó gầy ướt mưa.  
-Chú gắng sức bám chặt lấy mẹ, hay đúng hơn là cái xác giờ đã nát thành từng mảng thịt, dùng chút hơi tàn cuối cùng còn sót lại để cọ sát vào lồng ngực của mẹ mình, tha thiết bấu víu những giây phút sống sót cuối.
+Nó gắng sức bám chặt lấy mẹ, hay đúng hơn là cái xác giờ đã nát thành từng mảng thịt, dùng chút hơi tàn cuối cùng còn sót lại để cọ sát vào lồng ngực của mẹ mình, tha thiết bấu víu những giây phút sống sót cuối.
 
 “Tội nghiệp quá…”
 
 Giọng cha cô vang lên đầy xót thương cho số phận của chúng.
 
 Đêm hôm trước lạnh buốt hơn thường lệ.  
-Sau khi bố lái xe về, lũ mèo hẳn đã bị hơi ấm của động cơ dụ dỗ mà chui rúc vào dưới nắp ca-pô.  
+Sau khi cha cô lái xe về, lũ mèo hẳn đã bị hơi ấm của động cơ dụ dỗ mà chui rúc vào dưới nắp ca-pô.  
 Chúng đã ngủ vùi bên cạnh động cơ…  
 …và thức dậy giữa cơn bão dây cu-roa quay cuồng.  
 Những chiếc xe hơi từ thập niên 80 vốn không kín đáo cho lắm, nên chuyện như vậy cũng chẳng hiếm.
@@ -145,11 +146,11 @@ Ngày đầu tiên họ gặp nhau, một ngày mà chẳng phép màu nào có 
 ## Buổi sáng mùa đông
 
 Kiêu ngạo, tham lam, chỉ biết phá hủy...  
-Hẳn ta chính là loài sói.  
+Hẳn tôi chính là loài sói.  
 Không nuối tiếc, không ngoảnh đầu nhìn lại.  
 Nếu vì ngẩng cao đầu mà chẳng kịp nhận ra, để rồi bỏ mặc ai đó phía sau, thì xin gửi lời chia buồn.  
 Nhưng rồi cũng thôi,  
-Chắc số phận ta là sẽ bị cô bé quàng khăn đỏ trừ khử mà thôi…
+Chắc số phận tôi là sẽ bị cô bé quàng khăn đỏ trừ khử mà thôi…
 
 Đó là một buổi sáng tĩnh lặng.
 
@@ -167,7 +168,7 @@ Dù nghĩ cách nào cũng chẳng thể gọi đây là một buổi sáng dễ
 Nhưng với cô, người vừa thức trắng đêm cho tới tận ba tiếng trước, thì thời tiết bên ngoài thế nào cũng chẳng quan trọng nữa.
 
 Điều duy nhất cô quan tâm lúc này chính là giấc ngủ.  
-Chỉ cần được nằm ườn trên giường mà lim dim thêm, thì thế giới ngoài kia ra sao cũng chẳng liên quan gì đến cô cả, thế là cô đóng sập cửa sổ, gạt phăng mọi chuyện bên ngoài.
+Chỉ cần được nằm dài trên giường mà lim dim thêm, thì thế giới ngoài kia ra sao cũng chẳng liên quan gì đến cô cả, thế là cô đóng sập cửa sổ, gạt phăng mọi chuyện bên ngoài.
 
 Cô kéo rèm lại.  
 Rồi nhắm mắt, cố gắng để giấc ngủ sớm quay về.  
