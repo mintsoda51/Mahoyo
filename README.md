@@ -241,7 +241,7 @@ Khi cô đến được cổng trường, mưa đã ngớt đi phần nào.
 Ánh nắng cũng thấp thoáng chơi trò trốn tìm sau những đám mây phía xa.  
 Nhìn chừng, có lẽ đến đầu giờ chiều, trời sẽ tạnh hẳn.
 
-“…Dù vậy thì, cũng chẳng liên quan gì đến tôi cả.”
+“…Dù vậy thì, cũng chẳng liên quan gì đến mình cả.”
 
 Trái ngược với bầu trời đang dần quang đãng, vận may của cô thì thảm hại hết chỗ nói.  
 Bị dựng dậy từ sáng sớm sau một đêm thức trắng, lại còn phải lết ra đường giữa cơn mưa mùa đông.
