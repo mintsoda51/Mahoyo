@@ -38,14 +38,14 @@ Trong khi cha cô thong thả thưởng thức tách cà phê sau bữa sáng, v
 Cô bước ra khỏi cửa chính, hơi thở trắng xóa trong giá lạnh, băng qua khu vườn rồi mở cửa chiếc sedan cũ kỹ.  
 Như mọi lần, cô tra chìa khóa vào ổ rồi xoay nhẹ để đề máy.  
 Tiếng động cơ khẽ rung lên, ầm ì nổ máy.  
-Và khi cô vừa hoàn thành công việc nhỏ bé ấy, việc mà cô đã lặp đi lặp lại hàng chục lần trước đây — trong lòng vẫn ánh lên chút tự hào.
+Và khi cô vừa hoàn thành công việc nhỏ bé ấy, việc mà cô đã lặp đi lặp lại hàng chục lần trước đây.
 
 “■■■■■―――”
 
 Một tiếng thét chói tai vang lên xé toạc không gian.  
 Cô biết rõ, dù đó chẳng phải tiếng người, âm thanh yếu ớt ấy chính là tiếng khóc than đau đớn.
 
-Vài phút sau…
+Vài phút sau...
 
 Cha cô bước ra và mở nắp ca-pô xe, bên trong là một sự sống nhỏ bé.  
 Những dây cu-roa kêu kin kít…  
