@@ -99,9 +99,8 @@ Vị pháp sư sống trong hang động cất giọng dửng dưng nói.
 
 “Xin ông hãy cứu con mèo này…”, cô khẩn cầu tha thiết.
 
-Ông chẳng nói đó là việc dễ như trở bàn tay, cũng chẳng nói đó là việc trọng đại có thể đổi thay cả thế giới.  
-Ông chỉ lặng lẽ thực hiện điều ước ích kỷ của cô,  
-nhẹ bẫng, hờ hững như một cỗ máy.
+Ông chẳng nói đó là việc dễ như trở bàn tay, cũng chẳng nói đó là việc trọng đại có thể đổi thay cả thế giới.
+Ông chỉ lặng lẽ thực hiện điều ước ích kỷ của cô,  nhẹ nhàng, hờ hững như một cỗ máy.
 
 “…A…”, cô thốt lên khẽ khàng.
 
