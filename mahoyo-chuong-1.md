@@ -102,21 +102,21 @@ Vị pháp sư sống trong hang động cất giọng dửng dưng nói.
 Ông chẳng nói đó là việc dễ như trở bàn tay, cũng chẳng nói đó là việc trọng đại có thể đổi thay cả thế giới.
 Ông chỉ lặng lẽ thực hiện điều ước ích kỷ của cô,  nhẹ nhàng, hờ hững như một cỗ máy.
 
-“…A…”, cô thốt lên khẽ khàng.
+“…A…”, cô thốt lên.
 
-Nhưng khi nhận ra thì trong tay cô chỉ còn lại một thi thể bé xíu.  
-Bộ lông của nó đã lạnh ngắt.  
-Hơi ấm của sự sống đã rời bỏ thân thể ấy từ lâu.  
+Trước khi nhận ra thì trong tay cô chỉ còn lại một thi thể bé xíu.
+Bộ lông của nó đã lạnh ngắt.
+Hơi ấm của sự sống đã rời bỏ thân thể ấy từ lâu.
 Những giọt nước mắt mà cô đã cố kìm nén bấy lâu rốt cuộc vẫn trào ra khỏi khoé mắt.  
-Trong lồng ngực, hối hận lan rộng ra, xám xịt như bầu trời không bờ bến.
+Trong lồng ngực, cảm giác hối hận lan rộng ra, xám xịt như bầu trời.
 
 “Vô ích rồi. Có những chuyện… không thể quay trở lại như cũ.”
 
 Trong đầu cô vẫn chưa thể hiểu nổi chuyện gì vừa xảy ra.
 
-Mười phút vừa qua đối với cô chỉ là một khoảng trống hoàn toàn.  
-Cô đã gặp ai…  
-Cô đã biết điều gì… Tất cả như thể chưa từng tồn tại.  
+Mười phút vừa qua đối với cô chỉ là một khoảng trống hoàn toàn.
+Cô đã gặp ai…
+Cô đã biết điều gì… Tất cả như thể chưa từng tồn tại.
 Điều duy nhất cô chắc chắn, ấy là một khi sự sống đã tắt, nó sẽ không bao giờ quay trở lại.
 
 “Ơm… Có ai… ở đó không?”
@@ -124,21 +124,21 @@ Cô đã biết điều gì… Tất cả như thể chưa từng tồn tại.
 Hôm đó…  
 Chính sai lầm của cô đã sinh ra tôi.
 
-…Đúng vậy.  
+…Đúng vậy.
 Dù chuyện gì đã xảy ra ngày hôm đó,  
 thì mọi thứ đều đầy hoài niệm và khắc khoải chờ mong.
 
-Đó là câu chuyện cổ tích của tám năm về trước.  
+Đó là câu chuyện cổ tích của 8 năm về trước.
 Ngày đầu tiên họ gặp nhau, một ngày mà chẳng phép màu nào có thể mang trở lại.
 
 ## Buổi sáng mùa đông
 
-Kiêu ngạo, tham lam, chỉ biết phá hủy...  
-Hẳn ta chính là loài sói.  
-Không nuối tiếc, không ngoảnh đầu nhìn lại.  
-Nếu vì ngẩng cao đầu mà chẳng kịp nhận ra, để rồi bỏ mặc ai đó phía sau, thì xin gửi lời chia buồn.  
-Nhưng rồi cũng thôi,  
-Chắc số phận ta là sẽ bị cô bé quàng khăn đỏ trừ khử mà thôi…
+Kiêu ngạo, tham lam, chỉ biết phá hủy...
+Hẳn tôi chính là loài sói.
+Không nuối tiếc, không ngoảnh đầu nhìn lại.
+Nếu vì ngẩng cao đầu mà chẳng kịp nhận ra, để rồi bỏ mặc ai đó phía sau, thì xin gửi lời chia buồn.
+Nhưng rồi cũng thôi,
+Chắc số phận tôi là sẽ bị cô bé quàng khăn đỏ trừ khử mà thôi…
 
 Đó là một buổi sáng tĩnh lặng.
 
