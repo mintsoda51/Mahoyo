@@ -225,8 +225,8 @@ Bởi vì, dù là sự thật hiển nhiên hay chỉ là điều người ta t
 
 ## Một ngày thường 1
 
-Khi cô đến được cổng trường, mưa đã ngớt đi phần nào.  
-Ánh nắng cũng thấp thoáng chơi trò trốn tìm sau những đám mây phía xa.  
+Khi cô đến được cổng trường, mưa đã ngớt đi phần nào.
+Ánh nắng cũng thấp thoáng chơi trò trốn tìm sau những đám mây phía xa.
 Nhìn chừng, có lẽ đến đầu giờ chiều, trời sẽ tạnh hẳn.
 
 “…Dù vậy thì, cũng chẳng liên quan gì đến mình cả.”
@@ -234,34 +234,34 @@ Nhìn chừng, có lẽ đến đầu giờ chiều, trời sẽ tạnh hẳn.
 Trái ngược với bầu trời đang dần quang đãng, vận may của cô thì thảm hại hết chỗ nói.  
 Bị dựng dậy từ sáng sớm sau một đêm thức trắng, lại còn phải lết ra đường giữa cơn mưa mùa đông.
 
-Điềm này thì, cái chuyện cần nhờ gì đó chắc cũng chẳng ra hồn gì đâu―――  
+Với cái điềm này thì cái chuyện cần nhờ gì đó chắc cũng chẳng ra hồn gì đâu.
 Mang theo linh cảm chẳng lành khiến đầu càng thêm nhức, cô lặng lẽ bước qua cổng trường và đi vào trong khu lớp học.
 
-Trên đường đi, cô không gặp bất kỳ học sinh nào.  
-Cũng chẳng thấy ai đang tham gia hoạt động câu lạc bộ.  
-Bàn tiếp tân trước phòng giáo viên thì treo biển ‘Đang nghỉ’.  
-Nhà trường đã cho tất cả học sinh được nghỉ một ngày công bằng như nhau.  
-Tất nhiên, trừ cô, người bị gọi lên trường vào cái giờ oái oăm này.  
+Trên đường đi, cô không gặp bất kỳ học sinh nào.
+Cũng chẳng thấy ai đang tham gia hoạt động câu lạc bộ.
+Bàn tiếp tân trước phòng giáo viên thì treo biển ‘Đóng cửa’.
+Nhà trường đã cho tất cả học sinh được nghỉ một ngày công bằng như nhau.
+Tất nhiên, trừ cô, người bị gọi lên trường vào cái giờ oái oăm này.
 Và chính cái sự thật đó càng lúc càng làm cô thấy bực mình hơn.
 
-Cô mở cửa phòng giáo viên rồi bước thẳng tới chiếc bàn mà cô đã lui tới không biết bao nhiêu lần.  
-Ngồi ở bàn là một thầy giáo quen mặt.  
-Bộ sơ mi và vest của thầy tuy đơn giản nhưng được ủi phẳng phiu, gọn gàng.  
-Cặp kính gọng mảnh trên gương mặt ấy tạo cảm giác ôn hòa mà cũng khó lường.  
+Cô mở cửa phòng giáo viên rồi bước thẳng tới chiếc bàn mà cô đã lui tới không biết bao nhiêu lần.
+Ngồi ở bàn là một thầy giáo quen mặt.
+Ngồi ở bàn là một thầy giáo quen mặt với bộ sơ mi và vest tuy đơn giản nhưng được ủi phẳng phiu, gọn gàng.
+Cặp kính gọng mảnh trên gương mặt ấy tạo cảm giác ôn hòa mà cũng khó lường.
 Hình ảnh một người đàn ông chững chạc, nhã nhặn ở độ tuổi ngoài hai mươi này có vẻ chẳng ăn nhập gì với điếu thuốc đang cháy trên tay.  
 Có vẻ như ông thầy vẫn chưa nhận ra sự có mặt của cô.
 
 “Thầy Yamashiro?”
 
-Cô đóng cửa cái rầm.  
+Cô đóng cửa cái rầm.
 Trước tiếng động đột ngột đó, thầy Yamashiro, người vừa được gọi tên, chỉ bình thản ngẩng đầu lên, chẳng tỏ vẻ ngạc nhiên gì.
 
 “Chào buổi sáng, Aozaki. Xem ra em đã nhận được cuộc gọi rồi nhỉ?”
 
 “Vâng. Họ gọi thẳng đến nhà em cách đây khoảng một tiếng… chẳng thèm bàn bạc trước gì cả.”
 
-Thầy Yamashiro vốn cũng là cựu học sinh của trường này nên tuổi tác chẳng hơn là bao so với các học sinh hiện tại.  
-Có lẽ vì vậy mà so với các thầy cô khác, thầy được học trò quý mến hơn hẳn.
+Thầy Yamashiro vốn cũng là cựu học sinh của trường này nên tuổi tác chẳng hơn là bao so với các học sinh hiện tại.
+Có lẽ vì vậy mà so với các giáo viên khác, thầy được học trò quý mến hơn hẳn.
 
 Người giáo viên này lúc nào cũng có đủ chuyện thú vị để nói, giọng điệu thì hòa nhã, gần gũi.  
 Thật ra, trông thầy giống một đàn anh tin cậy hơn là một giáo viên nghiêm khắc.  
