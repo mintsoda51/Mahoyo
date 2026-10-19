@@ -263,27 +263,27 @@ Trước tiếng động đột ngột đó, thầy Yamashiro, người vừa đ
 Thầy Yamashiro vốn cũng là cựu học sinh của trường này nên tuổi tác chẳng hơn là bao so với các học sinh hiện tại.
 Có lẽ vì vậy mà so với các giáo viên khác, thầy được học trò quý mến hơn hẳn.
 
-Người giáo viên này lúc nào cũng có đủ chuyện thú vị để nói, giọng điệu thì hòa nhã, gần gũi.  
+Người giáo viên này lúc nào cũng có đủ chuyện thú vị để nói, giọng điệu thì hòa nhã, gần gũi.
 Thật ra, trông thầy giống một đàn anh tin cậy hơn là một giáo viên nghiêm khắc.  
 Tiếc là, khác với những học sinh khác, cô chẳng có chút thiện cảm nào với người giáo viên này cả.
 
-Theo cô, giáo viên thì phải nghiêm khắc, lạnh lùng mới đúng.  
-Đối với học sinh, họ nên là bức tường sừng sững vừa khiến người ta kính nể vừa khiến người ta ghét cay ghét đắng,  
-chứ không phải kiểu đàn anh thân thiện, cười cười nói nói để làm chỗ dựa tinh thần cho bọn trẻ… Đó là quan điểm của cô.
+Theo cô, giáo viên thì phải nghiêm khắc, lạnh lùng mới đúng. 
+Họ nên là bức tường sừng sững khiến người ta vừa kính nể vừa ghét cay ghét đắng,
+chứ không phải kiểu đàn anh thân thiện, cười cười nói nói để làm chỗ dựa tinh thần cho đám học sinh.
 
 Thầy Yamashiro hoàn toàn trái ngược với hình mẫu giáo viên lý tưởng trong mắt cô,  
 nên cũng dễ hiểu khi giọng điệu của cô với thầy lúc nào cũng cứng nhắc, lạnh nhạt chẳng mấy thân thiện.  
 …Mà thật ra, cái gọi là ‘thân thiện’ hay ‘dễ gần’ vốn chẳng nằm trong ‘bộ kỹ năng’ của cô ngay từ đầu.
 
-“Haiz… Hôm nay trông em có vẻ tâm trạng tệ nhỉ.”
+“Haiz… Hôm nay tâm trạng em có vẻ tệ nhỉ.”
 
 “Thầy nhầm rồi đấy. Em ngày nào cũng thế, đâu có riêng gì hôm nay.”
 
-Câu trả lời thẳng thừng đó hoàn toàn phản ánh gương mặt khó chịu của cô lúc này.  
-Cô thừa biết vẻ mặt mình đang tệ hại thế nào, vừa bực bội vì bị dựng dậy sớm, vừa mệt mỏi vì thức thâu đêm,  
+Câu trả lời thẳng thừng đó hoàn toàn phản ánh gương mặt khó chịu của cô lúc này.
+Cô thừa biết vẻ mặt mình đang tệ hại thế nào, vừa bực bội vì bị dựng dậy sớm, vừa mệt mỏi vì thức thâu đêm. 
 Tất cả trông chẳng khác nào đang nhìn kẻ thù không đội trời chung.
 
-“Nếu em đã nói vậy thì tốt rồi. Nhưng mà đừng quá gay gắt với vị khách của chúng ta nhé. Thật lòng thì các thầy cô giáo cũng chưa biết phải đối xử với cậu ta thế nào cho phải.”
+"Nếu em đã nói vậy thì tốt rồi. Nhưng mà đừng quá gay gắt với vị khách của chúng ta nhé. Thật lòng thì các thầy cô giáo cũng chưa biết phải đối xử với cậu ta thế nào cho phải."
 
 “Về chuyện đó, thầy có thể nói cho em biết rốt cuộc là chuyện gì không? Em vẫn chưa nghe được đầu đuôi gì cả.”
 
@@ -293,7 +293,7 @@ Trước ánh mắt sắc như dao và giọng nói lạnh tanh của cô, thầ
 
 “Chỉ bảo là sẽ giới thiệu một học sinh chuyển trường thôi ạ. Ngoài ra thì không nói rõ lý do hay ngọn ngành gì cả.”
 
-Câu trả lời ngắn gọn của cô khiến thầy Yamasiro khẽ nhướng mày, tỏ vẻ thán phục.  
+Câu trả lời ngắn gọn của cô khiến thầy Yamasiro khẽ nhướng mày, tỏ vẻ thán phục.
 Thầy hiểu ngay rằng điều khiến cô bực bội không phải vì bị gọi đến trường vào ngày nghỉ, mà chính là vì cuộc gọi đó chẳng nói rõ ràng lý do cô phải có mặt.
 
 “Quả là một người nghiêm khắc", thầy Yamasiro chỉ biết cười gượng đồng cảm.
@@ -330,7 +330,7 @@ Nói cho cùng, nếu thật sự muốn từ chối, hẳn giờ này cô đã 
 Nói thẳng ra thì cũng có thể coi là hơi thiếu sinh khí, nhưng mà như thế thì chắc cũng dễ hoà đồng hơn, đúng không?  
 Tuy không cùng lớp với em, nhưng thầy tin chắc hai đứa sẽ nhanh chóng thân thiết v―――"
 
-"Những chuyện như thế, tôi sẽ tự hỏi trực tiếp cậu ta và tự đánh giá."
+"Những chuyện như thế, em sẽ tự hỏi trực tiếp cậu ta và tự đánh giá."
 
 "Điều em muốn biết là tại sao lại phải là em?"
 
