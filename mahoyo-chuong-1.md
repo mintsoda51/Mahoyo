@@ -152,75 +152,75 @@ Vào một ngày thường thì chắc chắn cô đã muộn học, có xoay x�
 Nhờ vậy, sau bao lâu, cô mới có thể thảnh thơi tận hưởng một buổi sáng nhàn nhã.
 
 Nhắc lại lần nữa, bầu trời ngoài cửa sổ vẫn một màu xám xịt ảm đạm, trông chẳng giống buổi sáng mà giống hoàng hôn hơn.  
-Dù nghĩ cách nào cũng chẳng thể gọi đây là một buổi sáng dễ chịu.  
+Dù nghĩ cách nào cũng chẳng thể gọi đây là một buổi sáng dễ chịu.
 Nhưng với cô, người vừa thức trắng đêm cho tới tận ba tiếng trước, thì thời tiết bên ngoài thế nào cũng chẳng quan trọng nữa.
 
-Điều duy nhất cô quan tâm lúc này chính là giấc ngủ.  
+Điều duy nhất cô quan tâm lúc này chính là giấc ngủ.
 Chỉ cần được nằm ườn trên giường mà lim dim thêm, thì thế giới ngoài kia ra sao cũng chẳng liên quan gì đến cô cả, thế là cô đóng sập cửa sổ, gạt phăng mọi chuyện bên ngoài.
 
-Cô kéo rèm lại.  
-Rồi nhắm mắt, cố gắng để giấc ngủ sớm quay về.  
-‘…Chỉ mong ít nhất được mơ một giấc mơ bình thường trong hai tiếng nữa thôi.’  
-Cơn buồn ngủ vẫn còn đủ đầy, hạnh phúc mau chóng tìm đến.  
+Cô kéo rèm lại.
+Rồi nhắm mắt, cố gắng để giấc ngủ sớm quay lại.
+"…Làm ơn cho tôi mơ một giấc mơ bình thường trong hai tiếng nữa thôi. Cảm ơn."
+Cơn buồn ngủ vẫn còn đủ đầy, hạnh phúc mau chóng tìm đến.
 Ý thức của cô dần chìm xuống.
 
 Thế nhưng…  
 …mong ước nhỏ nhoi của cô đã bị phũ phàng từ chối.
 
-“...”
+"..."
 
-Một âm thanh nhỏ nhưng chói tai cứ văng vẳng bên tai cô.  
-Không lẫn đi đâu được, đó chính là tiếng chuông điện thoại.  
-Bực mình thay, theo thói quen, đôi mắt vừa khép lại đã bật mở ra, hoàn toàn trái ngược với ý muốn của cô.
+Một âm thanh nhỏ nhưng chói tai cứ văng vẳng bên tai cô.
+Không lẫn đi đâu được, đó chính là tiếng chuông điện thoại.
+Bực mình thay, theo thói quen, đôi mắt vừa khép lại đã mở ra hoàn toàn trái ngược với ý muốn của cô.
 
 “Trời ơi… sao lại đúng hôm nay chứ…”
 
-Chiếc điện thoại thì đặt ở sảnh tầng một.  
-Muốn nhấc máy, cô phải lê người qua hành lang dài chừng mười mét rồi bước xuống thêm một tầng cầu thang nữa.  
+Chiếc điện thoại đặt ở sảnh tầng một.
+Muốn nhấc máy, cô phải lê người qua hành lang dài chừng mười mét rồi bước xuống thêm một tầng cầu thang nữa.
 Trong tình trạng thiếu ngủ thế này, quãng đường đó với cô chẳng khác gì xa tít mù khơi.
 
-…Tiếng chuông điện thoại vẫn kiên nhẫn vang lên không ngừng.  
+Tiếng chuông điện thoại vẫn kiên nhẫn vang lên không ngừng.
 Cô biết chỉ cần mặc kệ thì thế nào người gọi cũng sẽ bỏ cuộc, nhưng cô lại chẳng thể dễ dãi với bản thân đến mức đó.
 
-"…Alice không nghe máy à?"
+"Alice không nghe máy à?"
 
-Cô còn nuôi hi vọng mong manh là bạn cùng nhà sẽ trả lời giúp, nhưng rồi cũng phải nhanh chóng từ bỏ.  
+Cô còn nuôi hi vọng mong manh là bạn cùng nhà sẽ trả lời giúp, nhưng rồi cũng phải nhanh chóng từ bỏ.
 Nghĩ kỹ lại thì chỉ trường của cô mới được nghỉ, còn bạn cùng nhà là tiểu thư của học viện trên đồi, chắc hẳn đã đến lớp từ sớm rồi.
 
-Người gọi quả thật kiên nhẫn đến lạ.  
-Càng dai dẳng, tiếng chuông nghe lại càng như to hơn hẳn.
+Người gọi quả thật kiên nhẫn đến lạ.
+Càng lúc tiếng chuông nghe càng như lớn hơn hẳn.
 
-“Trời ạ, người ta đang cố ngủ ngon mà…!”
+“Trời ạ, người ta đang cố ngủ mà…!”
 
 Không còn cách nào khác, cô đành rời khỏi giường, khoác tạm một chiếc áo rồi bước ra khỏi phòng.
 
 “Trời ơi, lạnh quá…”
 
-Cô chà xát hai bàn tay vào nhau, cố làm ấm những ngón tay đang tê cóng.  
-Hệ thống sưởi của căn biệt thự này thì chẳng ra sao cả.  
+Cô chà xát hai bàn tay vào nhau, cố làm ấm những ngón tay đang tê cóng.
+Hệ thống sưởi của căn biệt thự này thì chẳng ra sao cả.
 Thế nên, cái lạnh mùa đông đúng là kẻ khách không mời đáng sợ nhất.  
-Nhất là vào những buổi sáng xám xịt thế này, không cần nhìn nhiệt kế cũng biết lạnh chẳng kém gì giữa mùa đông.  
-Ngôi nhà nằm trong khu núi nhỏ, lại được bao quanh bởi khu rừng khá rậm, nên lúc nào mùa đông cũng tìm đến nơi này trước cả thành phố.
+Nhất là vào những buổi sáng xám xịt thế này, không cần nhìn nhiệt kế cũng biết lạnh chẳng kém gì giữa mùa đông.
+Ngôi nhà nằm trong khu núi nhỏ, lại được bao quanh bởi khu rừng khá rậm, nên lúc nào mùa đông cũng tìm đến nơi này trước cả thị trấn.
 
-Tiếng chuông điện thoại vô hồn vang vọng khắp hành lang dài.  
-Đồ đạc trong biệt thự được chăm chút khá cẩn thận, nhưng lại chẳng toát lên chút hơi thở của một ngôi nhà có người ở.  
+Tiếng chuông điện thoại vô hồn vang vọng khắp hành lang dài.
+Đồ đạc trong biệt thự được chăm chút khá cẩn thận, nhưng lại chẳng toát lên chút hơi thở của một ngôi nhà có người ở.
 Thay vì cảm giác sang trọng, nơi này gợi lên sự cô quạnh nhiều hơn.  
 Kết hợp với buổi sáng u ám thế này, nhìn qua cũng chẳng khác gì một ngôi nhà ma.
 
-“…Ừ thì, cũng chẳng khác gì nhà ma thật mà.  
+“…Ừ thì, cũng chẳng khác gì nhà ma thật mà.
 Căn nhà này rộng quá mức cho chỉ hai đứa bọn mình ở.”
 
-Cô đếm sơ sơ, tiếng chuông đã vang lên hơn ba mươi lần rồi.  
-Người gọi chắc rảnh rỗi lắm, hoặc cũng có thể là rất hiểu rõ tình cảnh của ngôi nhà này.  
+Cô đếm sơ sơ, tiếng chuông đã vang lên hơn ba mươi lần rồi.
+Người gọi chắc rảnh rỗi lắm, hoặc cũng có thể là rất hiểu rõ tình cảnh của ngôi nhà này.
 Và cô có linh cảm mạnh mẽ rằng khả năng thứ hai mới là đúng.
 
-Ngước mắt lên, ô cửa sổ phía trên chỉ toàn một màu u ám.  
-Cô vội vàng sải bước, như muốn tóm lấy cái tiếng chuông dai dẳng kia càng sớm càng tốt.  
+Ngước mắt lên, ô cửa sổ phía trên chỉ toàn một màu u ám.
+Cô vội vàng sải bước, như muốn tóm lấy cái tiếng chuông dai dẳng kia càng sớm càng tốt.
 Dù trong lòng vẫn linh cảm rằng, chỉ cần bắt được nó thôi thì buổi sáng bình yên của mình cũng sẽ tan thành mây khói.
 
-Dù sao đi nữa, đây chính là khởi đầu cho một chuỗi sự kiện dài dằng dặc.  
-Nếu câu chuyện này thiếu đi chút lãng mạn, xin hãy rộng lòng bỏ qua cho.  
-Bởi vì, dù là sự thật hiển nhiên hay chỉ là điều người ta thường nói…  
+Dù sao đi nữa, đây chính là khởi đầu cho một chuỗi sự kiện dài dằng dặc.
+Nếu câu chuyện này thiếu đi chút lãng mạn, xin hãy rộng lòng bỏ qua cho.
+Bởi vì, dù là sự thật hiển nhiên hay chỉ là điều người ta thường nói…
 …mọi chuyện phi thường đều bắt đầu từ những thứ u ám, bình lặng và chẳng có gì nổi bật như thế này.
 
 ## Một ngày thường 1
