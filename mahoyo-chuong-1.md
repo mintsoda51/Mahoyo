@@ -400,34 +400,33 @@ Bị kẹt trong căn phòng lạnh lẽo, chẳng có việc gì để làm, c�
 "Hmm."
 
 Không thể nào nghĩ ra được câu trả lời chắc chắn, cậu đành để tâm trí mình quay trở lại với âm thanh của mưa.  
-Cơn mưa này chẳng giống mưa nơi núi rừng bao nhiêu.  
-Không, nói đúng ra thì nó vẫn còn giữ lại chút hình dạng nguyên sơ của nó.  
-Mùi và âm thanh của nó đã trở nên cứng cỏi, sắc lạnh hơn, nhưng rốt cuộc, mưa vẫn là mưa.  
-Thì ra, ngay cả trong thế giới xa lạ này, vẫn có thứ gì đó tương đồng với ngọn núi của cậu…  
-Chỉ một điều nhỏ nhặt vậy thôi mà cũng khiến lòng cậu thấy ấm áp lạ thường.
+Cơn mưa này chẳng giống mưa nơi núi rừng.
+Không, nói đúng ra thì nó vẫn còn giữ lại chút hình dạng nguyên sơ của nó.
+Mùi và âm thanh của nó đã trở nên cứng cỏi, sắc lạnh hơn, nhưng rốt cuộc, mưa vẫn là mưa.
+Thì ra, ngay cả trong thế giới xa lạ này, vẫn có thứ gì đó tương đồng với ngọn núi của cậu…
 
-Cậu thích khung cảnh thành phố ướt đẫm trong mưa.  
-Tất nhiên, thời tiết nắng đẹp lúc nào cũng dễ chịu hơn, nhưng với cậu, mưa lại có một vẻ đẹp riêng.  
+Cậu thích khung cảnh thành phố ướt đẫm trong mưa.
+Tất nhiên, thời tiết nắng đẹp lúc nào cũng dễ chịu hơn, nhưng với cậu, mưa lại có một vẻ đẹp riêng.
 Phố xá mờ đi trong làn mưa, hương đất ẩm thoang thoảng trong sương, khiến cậu lại luyến lưu nhớ về quê nhà.  
 Chỉ những lúc như thế này, nỗi bất an khi đặt chân tới chốn phồn hoa đô hội này mới như được xoa dịu đi đôi chút.
 
 "..."
 
-…Nhưng rồi, cậu buông ra một tiếng thở dài chán nản.  
-Thật chẳng ra sao cả.  
-Dù đã chuyển đến đây được hai tuần, chỉ cần lơ đãng một chút là cậu lại thở than nhớ về quê cũ.  
+…Nhưng rồi, cậu buông ra một tiếng thở dài chán nản.
+Thật chẳng ra sao cả.
+Dù đã chuyển đến đây được hai tuần, chỉ cần lơ đãng một chút là cậu lại thở than nhớ về quê cũ.
 Nghĩ thế chẳng khác nào bất công với cuộc sống mới này, cậu tự nhủ phải chỉnh đốn lại tinh thần, rồi lại ngồi ngay ngắn, kiên nhẫn chờ đợi như cũ.
 
-Cứ như thể có một niềm đam mê kỳ lạ với những thứ làm xao nhãng, cậu lại thẫn thờ chăm chú lắng nghe âm thanh của mưa rơi.  
+Cứ như thể có một niềm đam mê kỳ lạ với những thứ làm xao nhãng, cậu lại thẫn thờ chăm chú lắng nghe âm thanh của mưa rơi.
 Đợi chờ thế này, xem ra với cậu cũng chẳng phải chuyện gì quá khó chịu.
 
-Cái lạnh tê buốt, cùng một tiếng đồng hồ bị bỏ mặc một mình, cậu đều âm thầm chịu đựng, nuốt trôi tất cả bằng những hơi thở sâu và bình thản.  
-Người ta vẫn hay nói, “Có công mài sắt, có ngày nên kim”, hay như chuyện các lãng sĩ Akō kiên nhẫn chờ đợi suốt bao năm.  
+Cái lạnh tê buốt, cùng một tiếng đồng hồ bị bỏ mặc một mình, cậu đều âm thầm chịu đựng, nuốt trôi tất cả bằng những hơi thở sâu và bình thản.
+Người ta vẫn hay nói, “Có công mài sắt, có ngày nên kim”, hay như chuyện các lãng sĩ Akō kiên nhẫn chờ đợi suốt bao năm.
 Dù có thể không biết đó có phải là ưu điểm hay không, nhưng sự kiên nhẫn của cậu thật đáng kinh ngạc.  
 Và chính sự nhẫn nại ấy lúc này lại trở thành nét nổi bật nhất của cậu thiếu niên ấy.
 
-Còn cô thì ngược lại, đang vô cùng tức giận.  
-Trên đường từ phòng giáo viên đến phòng họp, cô đã được nghe sơ lược về hồ sơ của học sinh chuyển trường mà mình sắp gặp.  
+Còn cô thì ngược lại, đang vô cùng tức giận.
+Trên đường từ phòng giáo viên đến phòng họp, cô đã được nghe sơ lược về hồ sơ của học sinh chuyển trường mà mình sắp gặp.
 Nghe đâu, cậu ta từ bé đến giờ vẫn sống tận sâu trong núi, nơi thậm chí còn chưa có cả điện.
 
 Điều đó đồng nghĩa với việc hơn một nửa thế giới văn minh hiện đại sẽ hoàn toàn là điều bí ẩn đối với cậu ta.
@@ -436,28 +435,28 @@ Nghe đâu, cậu ta từ bé đến giờ vẫn sống tận sâu trong núi, n
 
 Nghĩ vậy thì cơn giận của cô cũng là điều không thể trách được.
 
-Nghe nói ngôi làng của cậu ta đã sống biệt lập sâu trong núi suốt nhiều năm trời.  
-Ngay cả với ngôi làng dưới chân núi, họ cũng chỉ liên lạc với nhau mỗi tháng một lần qua đường bưu điện, thật khó tin đây lại là chuyện xảy ra ở Nhật Bản hiện đại.  
+Nghe nói ngôi làng của cậu ta đã sống biệt lập sâu trong núi suốt nhiều năm trời.
+Ngay cả với ngôi làng dưới chân núi, họ cũng chỉ liên lạc với nhau mỗi tháng một lần qua đường bưu điện, thật khó tin đây lại là chuyện xảy ra ở Nhật Bản hiện đại.
 Dẫu biết giờ đây đất nước này đã được phủ kín bởi mạng lưới đường cao tốc và đường sắt JR, như những mạch máu, nhưng nói rằng những ngôi làng heo hút như vậy hoàn toàn không còn tồn tại thì cũng không hẳn.  
 Điều duy nhất cô có thể chắc chắn lúc này, là bản thân chẳng thể nào hình dung được một con người lớn lên trong hoàn cảnh như thế sẽ nghĩ gì, sống ra sao.
 
 “Ý thầy là không có điện… là chỉ trong phạm vi làng thôi đúng không? Ít ra cũng phải có điện thoại công cộng chứ?”
 
-“Xem ra là không có thật đấy. Cậu ta bảo thứ đầu tiên khiến cậu ta sốc khi chuyển xuống đây sống chính là cái điện thoại.  
-Thầy không đùa đâu nhé, cậu ta đã nghiêm túc nói ‘Điện thoại đúng là tiện thật nhỉ’. Nghe vậy tự dưng tôi cũng phải nghĩ lại, đúng là tiện thật.”
+“Xem ra là không có thật đấy. Cậu ta bảo thứ đầu tiên khiến cậu ta sốc khi chuyển xuống đây sống chính là điện thoại.
+Thầy không đùa đâu nhé, cậu ta đã nghiêm túc nói ‘Điện thoại đúng là tiện thật nhỉ’. Nghe vậy tự dưng thầy cũng phải nghĩ lại, đúng là tiện thật.”
 
-Cô liếc mắt lườm ông thầy đang cười khúc khích.  
+Cô liếc mắt lườm ông thầy đang cười khúc khích.
 Không hiểu sao, vẻ ngây thơ của cậu thiếu niên nhà quê ấy lại khiến thầy Yamasiro cảm thấy dễ chịu hơn thì phải.
 
-“... Chắc trong làng cũng chẳng có đồn cảnh sát đâu nhỉ... Nhà em cũng ở tận trong núi, nên chuyện không có điện thì em không nói là không thể xảy ra.  
+“... Chắc trong làng cũng chẳng có đồn cảnh sát đâu nhỉ... Nhà em cũng ở tận trong núi, nên chuyện không có điện thì em không nói là không thể xảy ra.
 Nhưng... cậu ta đến cả trường học cũng không biết là gì sao?”
 
-“Ừ. Nghe nói cậu ta cũng biết trường học là gì, nhưng hôm nay mới là lần đầu tiên được đặt chân tới. Có lẽ vì thế nên mới căng thẳng, nói chuyện cũng chẳng cởi mở lắm.  
+“Nghe nói em ấy cũng biết trường học là gì, nhưng hôm nay mới là lần đầu tiên được đặt chân tới. Có lẽ vì thế nên mới căng thẳng, nói chuyện cũng chẳng cởi mở lắm.
 Kiểu như… sao nhỉ… hoang dã? Giống mấy đứa trẻ được sói nuôi ấy. Thế thì chắc chúng ta thành mấy nhà thám hiểm kiểu Lewis và Clark rồi nhỉ!”
 
 “...”
 
-“Này, em làm thầy sợ đấy, Aozaki. Thầy chỉ đùa thôi mà. Đừng nhìn tôi kiểu đó chứ.  
+“Này, em làm thầy sợ đấy, Aozaki. Thầy chỉ đùa thôi mà. Đừng nhìn thầy kiểu đó chứ.  
 Mà đừng lo, thầy thấy cậu ta hiền lắm!  
 Kiểu như… sao nhỉ… như một con thú nhỏ chẳng hiểu tiếng người vậy!”
 
@@ -465,14 +464,14 @@ Kiểu như… sao nhỉ… như một con thú nhỏ chẳng hiểu tiếng ng�
 
 Khi trả lời cộc lốc như vậy, cô vừa cố hình dung trong đầu xem một cuộc sống không có điện sẽ ra sao, nhưng chỉ nghĩ đến thôi cũng đủ làm gương mặt vốn đã khó chịu của cô càng trở nên cau có, gai góc hơn.
 
-Suy cho cùng, đó là một thế giới mà cô chưa từng biết đến.  
+Suy cho cùng, đó là một thế giới mà cô chưa từng biết đến.
 Cô hoàn toàn hiểu vì sao các thầy cô đã phải giơ tay đầu hàng.  
-Thật ra, cô cũng chỉ muốn bỏ cuộc rồi quay về cái giường ấm áp của mình, nhưng lòng tự trọng vô ích ấy lại giữ chân cô ở lại.  
+Thật ra, cô cũng chỉ muốn bỏ cuộc rồi quay về cái giường ấm áp của mình, nhưng lòng tự trọng vô ích ấy lại giữ chân cô ở lại.
 Một khi đã được các giáo viên tin tưởng giao phó, và bản thân cũng đã tự tin rằng mình làm được mà chấp nhận công việc này, thì cho dù sự việc có trở nên tồi tệ đến mức nào đi nữa, cô cũng không thể dễ dàng phủi tay bỏ mặc được.
 
-Tiếng mưa lách tách phía sau lưng, cô bước đi dọc hành lang lạnh lẽo.  
-Phòng họp đã ở ngay trước mắt.  
-Vẫn nhíu chặt mày, cô khẽ hất mái tóc dài như để chuẩn bị cho cuộc gặp gỡ với kẻ xa lạ mà mình chưa từng biết mặt.  
+Tiếng mưa lách tách phía sau lưng, cô bước đi dọc hành lang lạnh lẽo.
+Phòng họp đã ở ngay trước mắt.
+Vẫn nhíu chặt mày, cô khẽ hất mái tóc dài như để chuẩn bị cho cuộc gặp gỡ với kẻ xa lạ mà mình chưa từng biết mặt.
 Từng bước chân tao nhã ấy lại mang dáng vẻ kiêu hùng của một vị tướng quân đang sải bước ra chiến trường.
 
 "…Ờm, Aozaki?  
@@ -480,64 +479,67 @@ Thầy tin tưởng em thật đấy, nhưng cứ để thầy nhắc lại lầ
 
 "Em không giỏi cười gượng đâu ạ. Nhưng em sẽ cố gắng hết sức."
 
-"Thật sao? Vậy thì tốt rồi…  
+"Thật sao? Vậy thì tốt rồi…
 Thầy nói nghiêm túc đấy. Biết em cũng có thứ không giỏi làm thầy thấy yên tâm hẳn…"
 
 Khi vừa đến trước phòng họp, vai của thầy Yamasiro lập tức sụp xuống.  
 Đúng lúc đó, thầy đặt tay lên tay nắm cửa, ánh mắt như muốn nhắn nhủ cô rằng: “Làm ơn dịu dàng một chút nhé.”  
 Chính cách cư xử đó chỉ càng làm cơn bực dọc trong cô thêm trào lên.
 
-(Mình biết mà, mình đâu có phải loại người nhìn vào là thấy thân thiện ngay.  
-Nhưng nụ cười đâu phải thứ có thể cố gắng gượng ép để mà nặn ra được…  
+(Mình biết mà, mình đâu có phải loại người nhìn vào là thấy thân thiện ngay.
+Nhưng nụ cười đâu phải thứ có thể cố gắng gượng ép để mà nặn ra được…
 Nếu thầy muốn kiểu xã giao nhanh gọn như vậy thì thầy nên nhờ Tobimaru ấy.)
 
-Cô thở dài vì tự biết mình không phải kiểu người dễ gần, nhưng nghĩ kỹ thì bị gọi lên trường vào ngày nghỉ khi đang thiếu ngủ thì ai mà cười cho nổi.  
+Cô thở dài vì tự biết mình không phải kiểu người dễ gần, nhưng nghĩ kỹ thì bị gọi lên trường vào ngày nghỉ khi đang thiếu ngủ thì ai mà cười cho nổi.
 Hơn nữa, người gây ra cái mớ hỗn độn này thì đúng ra nên bắt đầu học lại từ tiểu học thì hơn là cấp ba.
 
-…Dù cho người đó không có lỗi, thì bản thân cô cũng chẳng có trách nhiệm hay nghĩa vụ gì phải gánh công việc thay cho phía nhà trường cả.  
+…Dù cho người đó không có lỗi, thì bản thân cô cũng chẳng có trách nhiệm hay nghĩa vụ gì phải gánh công việc thay cho phía nhà trường cả.
 Ít nhất thì… nói sao nhỉ.  
 Giá mà họ biết nghĩ một chút, sắp xếp chuyện này vào một ngày học bình thường thì còn đỡ, cô cũng muốn than phiền chuyện đó sau cho hả giận.
 
-(… Ghét thật đấy. Nói sao thì nói, tên đó cũng là kẻ thù của mình, dù còn chưa gặp mặt.  
-Xin lỗi nhé, nhưng mình chẳng buồn quan tâm đến hoàn cảnh đáng thương của hắn ta đâu!  
-Nghĩ sao chứ, chuyện này có làm mình bối rối hay khổ sở không à? Đúng vậy đấy! Thật sự, sao lại xảy ra đúng lúc mình bận rộn thế này cơ chứ―――)
+(Ghét thật đấy. Nói sao thì nói, tên đó cũng là kẻ thù của mình, dù còn chưa gặp mặt.
+Xin lỗi nhé, nhưng mình chẳng buồn quan tâm đến hoàn cảnh đáng thương của hắn ta đâu!
+Nghĩ xem chuyện này có làm mình khổ sở không? Thật sự thì sao lại xảy ra đúng lúc mình bận rộn thế này chứ)
 
-Đau đầu vì thiếu ngủ khiến sự hiếu chiến của cô tăng thêm mười phần trăm. Dù người ở phía bên kia cánh cửa có vô hại đến đâu thì chỉ cần dám quấy rầy giấc ngủ của cô, kẻ đó cũng là kẻ địch. Và đúng lúc cơn bực tức của cô sắp lên đến đỉnh điểm, thầy Yamasiro liền mở cửa phòng họp.
+Đau đầu vì thiếu ngủ khiến sự hiếu chiến của cô tăng thêm mười phần trăm.
+Dù người ở phía bên kia cánh cửa có vô hại đến đâu thì chỉ cần dám quấy rầy giấc ngủ của cô, kẻ đó cũng là kẻ địch.
+
+Và đúng lúc cơn bực tức của cô sắp lên đến đỉnh điểm, thầy Yamasiro liền mở cửa phòng họp.
 
 Khung cảnh bên trong từ từ hiện ra trước mắt.  
-Cô chẳng buồn để tâm đến mấy chuyện hình thức, chỉ giữ nguyên ánh nhìn thẳng tắp rồi xông thẳng vào phòng họp —  
+Cô chẳng buồn để tâm đến mấy chuyện hình thức, chỉ giữ nguyên ánh nhìn thẳng tắp rồi xông thẳng vào phòng họp.
 Và ngay lập tức đối mặt với một “kẻ địch” khác thường chưa từng thấy.
 
-Trước khi tiếp tục, hãy nhìn mọi thứ từ một góc độ khác.  
-Thời gian sẽ được tua ngược lại một chút…
+Trước khi tiếp tục, hãy nhìn mọi thứ từ một góc độ khác.
+Thời gian sẽ được tua ngược lại một chút.
 
 “Em không cần phải làm gì cả.”
 
-Với một số người, những lời này là một sự xa xỉ vô giá.  
+Với một số người, những lời này là một sự xa xỉ vô giá.
 Nhưng với một số người khác, đó lại là một hình phạt khắc nghiệt không thể chịu đựng nổi.
 
 Với một cô gái chủ động như cô ấy, điều đó đúng là một đặc ân đáng ghen tị, nhưng lại quá đáng ngờ để có thể thoải mái đón nhận.  
 Còn với cậu con trai thụ động kia, thì đó rõ ràng là một chiếc gai đắng ngắt khơi dậy nỗi nhớ quê hương…  
 Tuy nhiên, vào khoảnh khắc này, khi đang bị bỏ mặc chờ đợi, gương mặt cậu ta vẫn chẳng bộc lộ chút bất mãn nào.
 
-Cậu giữ thẳng lưng một cách tự nhiên, mắt vẫn dõi theo bầu trời xám xịt.  
-Cậu đã ngồi đợi suốt một tiếng đồng hồ, nhưng nghĩ bụng bên kia chắc cũng có lý do của họ, mà có phải mất tiền gì đâu.  
+Cậu giữ thẳng lưng một cách tự nhiên, mắt vẫn dõi theo bầu trời xám xịt.
+Cậu đã ngồi đợi suốt một tiếng đồng hồ, nhưng nghĩ bụng bên kia chắc cũng có lý do của họ, mà có phải mất tiền gì đâu.
 Chỉ cần còn tiếng mưa rơi bên tai xoa dịu lòng, thì cậu vẫn có thể chờ đợi như thế này bao lâu cũng được.
 
-(Chắc giờ cũng đã hơn chín giờ rồi…  
-Ừm, chắc là vậy nhỉ…)
+(Chắc giờ cũng đã hơn chín giờ rồi.
+Ừm, chắc là vậy nhỉ.)
 
 Dù thế, cậu vẫn lơ đãng nghe tiếng mưa rơi, vừa mơ hồ để tâm đến thời gian.
 
 Vì là ngày nghỉ, cả tòa nhà trường im ắng không một tạp âm nào,  
 chỉ còn tiếng mưa lách tách gõ lên cửa sổ.  
-Bầu không khí ẩm ướt càng làm tâm trạng thêm nặng nề, lắng xuống.  
+Bầu không khí ẩm ướt càng làm tâm trạng thêm nặng nề, lắng xuống.
 Và rồi…  
 …cậu nghe thấy tiếng bước chân nặng nề, dứt khoát, vang lên đều đặn tiến lại gần.
 
 (Cuối cùng cũng tới. Mình cứ tưởng họ quên mất mình rồi.)
 
-Cậu nghe thấy hai tiếng bước chân, một nhẹ nhàng, và một nặng nề hơn, chắc là của người lớn.  
+Cậu nghe thấy hai tiếng bước chân, một nhẹ nhàng, và một nặng nề hơn, chắc là của người lớn.
 Cậu khẽ thở phào nhẹ nhõm đúng lúc cánh cửa phòng họp từ từ mở ra.
 
 “Xin lỗi nhé, để em phải chờ lâu quá.”
