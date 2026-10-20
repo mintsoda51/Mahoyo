@@ -577,7 +577,7 @@ Lý do thì quá rõ ràng.
 Và ngay khoảnh khắc ấy…  
 Cậu thiếu niên thực sự cảm nhận được rằng mình vừa chạm vào điều gì đó tựa như bàn tay của định mệnh.
 
-“Cho phép thầy giới thiệu hai em với nhau nhé. Đây là học sinh chuyển trường mà thầy đã nhắc đến, cậu ấy tên là Shizuki Soujyuro.  
+“Cho phép thầy giới thiệu hai em với nhau nhé. Đây là học sinh chuyển trường mà thầy đã nhắc đến, cậu ấy tên là Sizuki Soujyuro.  
 Còn đây là người sẽ hướng dẫn em làm quen với trường.  
 Em ấy là hội trưởng hội học sinh của trường mình, đã dành cả ngày nghỉ để đến đây đón em đấy. Tên em ấy là Aozaki Aoko.”
 
@@ -637,14 +637,14 @@ Nhìn từ ngoài vào, cảnh đó chẳng khác nào một cuộc đấu mắt
 Và đúng vào khoảnh khắc ấy…  
 Mọi bực bội dồn nén của cô trút xuống, đâm thẳng vào cậu thiếu niên vô tội, người vừa mới gặp cô lần đầu tiên.
 
-“À, xin lỗi đã để em đợi lâu vậy, Shizuki.”
+“À, xin lỗi đã để em đợi lâu vậy, Sizuki.”
 
 Nghe thấy tên mình, cậu thiếu niên, Soujyuro, bừng tỉnh khỏi trạng thái ngây người.  
 Ánh nhìn sững sờ của cậu dần tan ra,  
 cậu hít một hơi sâu như để nuốt trôi cơn choáng váng trong lòng.  
 Nhìn dáng vẻ đó, thầy Yamasiro đoán cậu đang căng thẳng, liền nở nụ cười hiền hòa rồi quay sang cô gái đang đứng cạnh mình.
 
-“Để thầy giới thiệu nhé. Đây là học sinh chuyển trường, bạn ấy tên là Shizuki Soujyuro.  
+“Để thầy giới thiệu nhé. Đây là học sinh chuyển trường, bạn ấy tên là Sizuki Soujyuro.  
 Còn đây là người sẽ hướng dẫn em làm quen với trường,cô ấy là hội trưởng hội học sinh của chúng ta, Aozaki Aoko. Hôm nay còn đặc biệt dành cả ngày nghỉ để đến đón và dẫn em làm quen trường đấy.”
 
 Được thầy Yamasiro giới thiệu, cô gái bước lên một bước.  
@@ -697,29 +697,33 @@ Nhưng cậu thiếu niên lại chẳng hề nhận ra ẩn ý cay nghiệt tro
 Với gương mặt mà cả đời này chắc chẳng biết đến thứ gọi là ác ý,  
 cậu đáp lại:
 
-“À, mình là Shizuki Soujyuro. Còn bạn… là Aozaki-san, đúng không?”
+“À, mình là Sizuki Soujyuro. Còn bạn… là Aozaki-san, đúng không?”
 
 Vì lý do nào đó, cậu trả lời bằng giọng đầy vui vẻ, như đang chậm rãi cảm nhận từng lời nói ra.
 
-“Bỏ chữ 'san' đi, nghe không hợp với tôi. Còn cậu thì gọi là Shizuki được chứ?”
+“Bỏ chữ 'san' đi, nghe không hợp với tôi. Còn cậu thì gọi là Sizuki được chứ?”
 
-“Gọi là Shizuki… là sao cơ?”
+“Gọi là Sizuki… là sao cơ?”
 
-“Là sao cái gì mà sao. Ý tôi hỏi là tôi gọi cậu là Shizuki-kun có được không đấy.” , "…Gì vậy? Tôi nói gì lạ lắm sao?"
+“Là sao cái gì mà sao. Ý tôi hỏi là tôi gọi cậu là Sizuki-kun có được không đấy.”
+
+"..."
+
+"…Gì vậy? Tôi nói gì lạ lắm sao?"
 
 "Ờ, rất là—"
 
 Chàng trai trả lời ngay lập tức như thể đó là phản xạ tự nhiên, nhưng rồi lại tự lẩm bẩm, ủa, chắc cũng không đến mức vậy đâu nhỉ.
 
-“À, thôi không sao. Ở đây chắc cũng bình thường mà.  
-Cứ gọi mình là Shizuki đi. Còn mình gọi cậu là Aozaki được chứ?”
+“À, thôi không sao. Ở đây chắc cũng bình thường mà.
+Cứ gọi mình là Sizuki đi. Còn mình gọi cậu là Aozaki được chứ?”
 
 “Ừ, tuỳ cậu.”
 
-Cô đáp lại cộc lốc rồi quay ngoắt người đi.  
+Cô đáp lại cộc lốc rồi quay ngoắt người đi.
 Dù chẳng hứng thú gì với công việc này, nhưng đã là việc được giao thì làm đến nơi đến chốn là nguyên tắc của cô.
 
-“Xin lỗi, nhưng tôi không có hứng để tỏ ra dễ chịu đâu.  
+“Xin lỗi, nhưng tôi không có hứng để tỏ ra dễ chịu đâu.
 Thời gian quý lắm, nên làm cho nhanh đi.”
 
 “Ừ, thế thì tốt quá. Đúng là thời gian rất quan trọng mà.”
@@ -728,34 +732,33 @@ Sự gay gắt thẳng thừng của Aoko một lần nữa hoàn toàn không c
 
 "..."
 
-Con người ta, dù dưới hình thức nào đi nữa, thường rất dễ để tâm khi bị phớt lờ.  
+Con người ta, dù dưới hình thức nào đi nữa, thường rất dễ để tâm khi bị phớt lờ.
 Dù bực mình vì mọi “đòn tấn công” của mình đều vô ích từ nãy đến giờ, Aoko vẫn cố giữ thái độ chuyên nghiệp và ra hiệu cho “vị khách” của mình bước ra hành lang.
 
 Hành lang này không có ánh sáng mặt trời chiếu vào, cũng chẳng có bóng dáng con người nào.  
-Nếu phòng họp khi nãy giống như một hang đá tự nhiên thì chỗ này lại gợi đến một nhà giam nhân tạo.  
+Nếu phòng họp khi nãy giống như một hang đá tự nhiên thì chỗ này lại gợi đến một nhà giam.
 Nhận ra hành lang này thật hợp với tâm trạng của mình lúc này, Aoko lại khẽ thở dài một lần nữa.
 
 “Trước hết, tôi hỏi cái này đã. Cậu hiểu hết những gì thầy Yamasiro đã giải thích chưa?”
 
-“Ừ, mình hiểu cách trường hoạt động rồi.  
+“Ừ, mình hiểu cách trường hoạt động rồi.
 Nhưng vẫn hơi khó tưởng tượng được là trong cả toà nhà này lại toàn những người cùng trang lứa như vậy.”
 
 “…Vậy à. Tốt cho cậu đấy.”
 
-Aoko đưa tay lên ấn trán, tỏ vẻ mệt mỏi.  
-Cái cậu tên Soujyuro này thật sự chẳng biết trường học thực chất là gì cả.  
+Aoko đưa tay lên ấn trán, tỏ vẻ mệt mỏi.
+Cái cậu tên Soujyuro này thật sự chẳng biết trường học thực chất là gì cả.
 Có vẻ như cho đến giờ, cậu ta chỉ nghe nói một cách mơ hồ rằng trường học là nơi có rất nhiều người tụ tập lại để học hành mà thôi.
 
-Giáo viên cấp ba truyền đạt cho học sinh những kiến thức và hiểu biết về nhiều lĩnh vực, đồng thời rèn giũa kỷ luật và khả năng sáng tạo cho các học sinh.  
-Thế nhưng, Aoko chưa từng nghĩ sẽ có ngày mình phải bắt đầu bằng việc giải thích “trường học là gì” cho ai đó.  
-Đúng là nền tảng cơ bản thì quan trọng thật, nhưng thế này thì quá mức cơ bản rồi.  
-…Cô tự hỏi liệu cậu ta có theo kịp nổi các tiết học ở bậc phổ thông không, nhưng theo lời thầy Yamasiro thì “kiểu gì rồi cũng ổn cả thôi”.
-
+Giáo viên cấp ba truyền đạt cho học sinh những kiến thức và hiểu biết về nhiều lĩnh vực, đồng thời rèn giũa kỷ luật và khả năng sáng tạo cho các học sinh.
+Thế nhưng Aoko chưa từng nghĩ sẽ có ngày mình phải bắt đầu bằng việc giải thích “trường học là gì” cho ai đó.  
+Đúng là nền tảng cơ bản thì quan trọng thật, nhưng thế này thì quá mức cơ bản rồi.
+Cô tự hỏi liệu cậu ta có theo kịp nổi các tiết học ở bậc phổ thông không, nhưng theo lời thầy Yamasiro thì “kiểu gì rồi cũng ổn cả thôi”.
 Dù sao đi nữa, Soujyuro cũng đã vượt qua kỳ thi chuyển trường, dù chỉ vừa đủ điểm đậu.
 
-(‘…Ừ thì, chuyện đó đâu liên quan gì đến mình.’)
+(Ừ thì, chuyện đó đâu liên quan gì đến mình.)
 
-Aoko lẩm bẩm trong lòng khi sải bước dọc hành lang.  
+Aoko lẩm bẩm trong lòng khi sải bước dọc hành lang.
 Dù sao thì, cô cũng tự an ủi bản thân rằng hôm nay sẽ là ngày duy nhất cô phải dây dưa với cậu trai “lập dị” này… hay ít nhất, cô sẽ cố gắng để nó chỉ dừng lại ở hôm nay mà thôi.
 
 “Aozaki…”
@@ -768,24 +771,24 @@ Cậu ta bình thản gọi, cố gắng bắt chuyện với Aoko đang bước
 
 “Ừ, rồi sao?”
 
-“Mình có thể nhầm, nhưng trông cậu như đang bực bội chuyện gì đó vậy.  
+“Mình có thể nhầm, nhưng trông cậu như đang bực bội chuyện gì đó vậy.
 Cậu không phải là người dậy sớm giỏi, đúng không?”
 
-Ánh mắt cậu ta đầy quan tâm chân thành, như thể đang lo lắng hỏi cô: “Cậu đã ăn sáng chưa đấy?”
+Ánh mắt cậu ta đầy quan tâm chân thành, như thể đang lo lắng hỏi cô đã ăn sáng.
 
 “…”
 
-Một cú búa nữa như nện thẳng vào đầu cô.  
-Quả thật, từ nãy đến giờ Aoko đã trừng mắt nhìn Soujyuro.  
-Nói đúng hơn là đang nhìn cậu ta bằng ánh mắt sắc như dao nung đỏ.  
+Một cú búa nữa như nện thẳng vào đầu cô.
+Quả thật, từ nãy đến giờ Aoko đã trừng mắt nhìn Soujyuro.
+Nói đúng hơn là đang nhìn cậu ta bằng ánh mắt sắc như dao nung đỏ.
 Thậm chí không chỉ cậu ta, mà là đang trừng mắt với cả vũ trụ này.
 
-Vào những ngày bình thường nhất, bạn cùng phòng của Aoko vẫn hay nói:
+Vào những ngày bình thường nhất, bạn chung nhà của Aoko vẫn hay nói.
 
-“Ánh nhìn của cậu dữ dằn quá, Aoko. Người bình thường nhìn vào cũng sợ đấy.  
+“Ánh nhìn của cậu dữ dằn quá, Aoko. Người bình thường nhìn vào cũng sợ đấy.
 Cậu nên rộng lượng và dễ chịu với mọi thứ hơn một chút.”
 
-Cô đã bị nhắc nhở biết bao lần rằng cảm xúc của mình lúc nào cũng hiện rõ mồn một trên mặt, đến mức ai cũng coi cô như một thùng thuốc súng sắp nổ.  
+Cô đã bị nhắc nhở biết bao lần rằng cảm xúc của mình lúc nào cũng hiện rõ mồn một trên mặt, đến mức ai cũng coi cô như một thùng thuốc súng sắp nổ.
 Ấy thế mà cậu ta lại chẳng nhận ra điều đó? Cậu ta ngây thơ hay chậm hiểu đến mức nào mới có thể xem ánh nhìn ấy như chẳng có gì chứ?
 
 (Cậu ta không đang chế giễu mình… đúng không? Không… chắc là không phải.)
@@ -794,67 +797,68 @@ Cô đã bị nhắc nhở biết bao lần rằng cảm xúc của mình lúc n
 
 Dù tự trấn an bản thân như thế, nhưng chính cô cũng không thể tự tin chắc chắn được điều đó.
 
-Mãi đến lúc này, Aoko mới chợt nhận ra, dù đã quá muộn…  
+Mãi đến lúc này, Aoko mới chợt nhận ra, dù đã quá muộn…
 …rằng so với bản thân mình, cậu học sinh chuyển trường thảnh thơi kia chẳng khác nào một sinh vật đến từ hành tinh khác.
 
-"…Nghe này. Tôi nói thẳng ra nhé, vì không nói thì cậu chẳng hiểu được đâu. Không phải là có vẻ như vậy, mà đúng là như thế đấy.  
+"Nghe này. Tôi nói thẳng ra nhé, vì không nói thì cậu chẳng hiểu được đâu.
 Không phải do cậu tưởng tượng ra đâu. Tôi đã cố tình dùng ánh mắt để cho cậu thấy tôi đang bực mình đấy. Vì phải nói ra hay biến nó thành một cuộc hội thoại thì phiền phức lắm"
 
-Trước lời nói của Aoko, kẻ ngoài hành tinh đó bèn vỗp hai tay vào nhau.
+Trước lời nói của Aoko, tên người ngoài hành tinh đó vỗ hai tay vào nhau.
 
 "Ra vậy. Mình không hiểu tại sao cậu lại muốn làm vậy, nhưng đúng là cách đó nhanh gọn để bày tỏ ý của mình thật."
 
-Chàng trai Soujyuro ngoan ngoãn gật gù chấp nhận lời giải thích của cô.  
-Thế nhưng, cậu vẫn hoàn toàn không hiểu rốt cuộc Aoko đang muốn bày tỏ cảm xúc gì.  
-Cứ như thể cậu nghe được lời nói, nhưng lại không nắm bắt được ý nghĩa bên trong.  
+Soujyuro ngoan ngoãn gật gù chấp nhận lời giải thích của cô.
+Thế nhưng, cậu vẫn hoàn toàn không hiểu rốt cuộc Aoko đang muốn bày tỏ cảm xúc gì.
+Cứ như thể cậu nghe được lời nói, nhưng lại không nắm bắt được ý nghĩa bên trong.
 Những ý nghĩ lẽ ra phải liền mạch với nhau thì lại bị ngắt thành từng mảnh rời rạc, chẳng ăn khớp gì cả.
 
-(…Quả thật là cậu ta "lập dị" thật...)
+(Quả thật là cậu ta "lập dị" thật...)
 
-Aoko lúc này mới thực sự hiểu ra lời của thầy Yamasiro.  
-Sự “kỳ lạ” của cậu con trai này không chỉ đơn giản là vì cậu ta ngây thơ hay vô tư.  
-…Dù sao thì, với cậu ấy, nơi này chẳng khác nào một miền đất xa lạ. Một chút “ngáo ngơ” kiểu lệch múi giờ cũng nên được tha thứ, đó mới là cách hành xử của người văn minh.
+Aoko lúc này mới thực sự hiểu ra lời của thầy Yamasiro.
+Sự “kỳ lạ” của cậu con trai này không chỉ đơn giản là vì cậu ta ngây thơ hay vô tư.
+Dù sao thì, với cậu ấy, nơi này chẳng khác nào một miền đất xa lạ. Một chút “ngáo ngơ” kiểu lệch múi giờ cũng nên được tha thứ.
 
-Vậy thì trước tiên, chúng ta sẽ đi đến lớp học của cậu nhé.  
+"Vậy thì trước tiên, chúng ta sẽ đi đến lớp học của cậu nhé."
+
 Lấy lại tinh thần, Aoko nói vậy.  
 Thế nhưng Soujyuro lại giơ tay lên và dừng bước.
 
 "À, còn một chuyện nữa"
 
-Trước dáng vẻ bình thản quá mức của Soujyuro, Aoko im lặng giục cậu ta nói tiếp.  
+Trước dáng vẻ bình thản quá mức của Soujyuro, Aoko im lặng giục cậu ta nói tiếp.
 Vẫn giữ ngón tay áp lên trán, cô cảm thấy một nỗi bất an mơ hồ len lỏi trong lòng.
 
-"Mình cũng muốn hỏi chút... sao cậu lại có vẻ bực mình như vậy?  
+"Mình cũng muốn hỏi chút... sao cậu lại có vẻ bực mình như vậy?
 Bực mình là nghề của cậu à? Hay đó là truyền thống gia đình gì đó?"
 
 "..."
 
-Một khoảng im lặng dài.  
-Giờ thì có hối hận cũng đã muộn, nhưng Aoko vẫn không khỏi cay đắng hối tiếc việc mình đã bắt máy cuộc gọi hồi sáng nay.  
+Một khoảng lặng dài.
+Giờ thì có hối hận cũng đã muộn, nhưng Aoko vẫn không khỏi cay đắng hối tiếc việc mình đã bắt máy cuộc gọi hồi sáng nay.
 Cô biết cậu ta không hề có ác ý.
 
 “Chỉ là tính cách ngây thơ thôi, chỉ là kiểu ngây thơ thôi…”, cô lặp đi lặp lại trong lòng như một câu thần chú để kiềm chế cơn bốc đồng của mình.
 
-"Không phải do cậu đâu, nên không cần phải lo lắng gì cả.  
-Chỉ là… nếu đem so khoảnh khắc này với việc tôi cứ ngủ đến trưa thì lợi ích chênh lệch quá lớn, nên tôi chỉ đang thấy đau đầu thôi mà."
+"Không phải do cậu đâu, nên không cần phải lo lắng gì cả.
+Chỉ là nếu đem so khoảnh khắc này với việc tôi cứ ngủ đến trưa thì lợi ích chênh lệch quá lớn, nên tôi chỉ đang thấy bực tức thôi mà."
 
-Đáp lại một cách vòng vo như vậy, lần này Aoko thực sự quay người bước đi.  
-Và cô cũng quay ánh mắt mình đi, cắt đứt hoàn toàn gã “người lạ bất lịch sự” tên là Shizuki Soujyuro ra khỏi tầm nhìn.
+Đáp lại một cách vòng vo như vậy, lần này Aoko thực sự quay người bước đi.
+Và cô cũng quay ánh mắt mình đi khỏi tên “người lạ bất lịch sự” Sizuki Soujyuro.
 
-Mặc dù việc thế nào là ‘bình thường’ vẫn còn là điều gây tranh cãi, nhưng hầu hết mọi người chắc chắn sẽ coi cậu ấy là như vậy. Cậu là một cậu bé giản dị, tốt bụng, với ngoại hình không có nét gì nổi bật. Nếu cậu ấy là một vị kem, thì chắc chắn sẽ là vị vanilla.
+Mặc dù việc thế nào là ‘bình thường’ vẫn còn là điều gây tranh cãi, nhưng hầu hết mọi người chắc chắn sẽ coi cậu ấy là như vậy.
+Cậu là một cậu bé giản dị, tốt bụng, với ngoại hình không có nét gì nổi bật. Nếu cậu ấy là một vị kem, thì chắc chắn sẽ là vị vanilla.
 
 Với Soujyuro, Aozaki Aoko là một người nhanh nhẹn, luôn năng động và tràn đầy sức sống.
-
 Ngay cả những cử chỉ vô thức của cô cũng không hề thừa thãi, mọi động tác đều dứt khoát, bắt đầu nhanh gọn rồi dừng lại gọn gàng, đẹp đẽ.
 
-Cách cô ấy giơ ngón tay lên mỗi khi chỉ vào thứ gì đó ...  
-Cách cô ấy băng qua hành lang hay lớp học ...  
-Cách thỉnh thoảng cô ấy ngoảnh lại phía sau để chắc rằng cậu vẫn theo kịp, không bị bỏ lại quá xa ...  
+Cách cô ấy giơ ngón tay lên mỗi khi chỉ vào thứ gì đó...
+Cách cô ấy băng qua hành lang hay lớp học...  
+Cách thỉnh thoảng cô ấy ngoảnh lại phía sau để chắc rằng cậu vẫn theo kịp, không bị bỏ lại quá xa...
 Từng cử chỉ, từng hành động của cô đều vô cùng cuốn hút, đến mức cậu không thể rời mắt khỏi cô.
 
-Aoko trước tiên dẫn cậu đến lớp học chính của cậu ta, lớp 11C.  
-Căn phòng này ít ra cũng phảng phất hơi người hơn phòng họp ban nãy, nhưng Soujyuro vẫn không hiểu nổi đây là nơi dùng để làm gì.  
-Sau khi nghe Aoko giải thích ngắn gọn, cậu được dẫn đi tham quan các lớp học bộ môn, nhà thể dục, căng tin, phòng thay đồ và phòng y tế.  
+Aoko trước tiên dẫn cậu đến lớp học chính của cậu ta, lớp 11C.
+Căn phòng này ít ra cũng phảng phất hơi người hơn phòng họp ban nãy, nhưng Soujyuro vẫn không hiểu nổi đây là nơi dùng để làm gì.
+Sau khi nghe Aoko giải thích ngắn gọn, cậu được dẫn đi tham quan các lớp học bộ môn, nhà thể dục, căng tin, phòng thay đồ và phòng y tế.
 Vì Soujyuro cứ hỏi han khắp nơi nên khi cả hai ra khỏi phòng nghe nhìn ở tầng hai, thời gian đã trôi qua khá lâu.
 
 “…Gay rồi.”
@@ -865,12 +869,12 @@ Soujyuro dừng bước, vẻ mặt trông thật sự lo lắng.
 
 “Hả? Cậu đùa à? Trường này đâu có rộng đến thế.”
 
-Cuộc tham quan bắt đầu từ khoảng trước mười giờ sáng, tức là nếu đã sắp một giờ thì cũng đã trôi qua gần ba tiếng đồng hồ.  
-Một buổi dẫn tham quan trong trường lẽ ra không thể nào mất nhiều thời gian đến vậy…
+Cuộc tham quan bắt đầu từ khoảng trước mười giờ sáng, tức là nếu đã sắp một giờ thì cũng đã trôi qua gần ba tiếng đồng hồ.
+Một buổi dẫn tham quan trong trường lẽ ra không thể nào mất nhiều thời gian đến vậy.
 
-“…Ờ ha. Đi đến đâu cậu cũng hỏi cặn kẽ thế thì, mất bao lâu chẳng xong. Tới giờ mà trời chưa sập tối mới lạ đấy.”
+“Mà cũng có thể. Đi đến đâu cậu cũng hỏi cặn kẽ thì mất bao lâu chẳng xong. Tới giờ mà chưa sập tối mới lạ đấy.”
 
-Aoko lườm Soujyuro một cái sắc lẹm.  
+Aoko lườm Soujyuro một cái sắc lẹm.
 Dĩ nhiên cô biết thừa cậu ta chẳng bao giờ hiểu nổi ý châm chọc đó, nhưng vẫn cứ phải càu nhàu.
 
 (…Cậu ta bị sao thế…?)
@@ -879,21 +883,20 @@ Vì một lý do nào đó, Soujyuro cúi đầu xuống, trông có vẻ áy n�
 
 (Ơ, gì vậy trời… Tên này cũng bình thường đấy chứ.)
 
-Soujyuro trông lúng túng thế này thì khác hẳn với dáng vẻ vô cảm trước đó, như thể trở thành một người khác vậy.  
-Không còn vẻ mặt bất động chẳng phản ứng gì với lời cô nói, điều đó khiến Aoko bất giác cảm thấy một thứ gần gũi khó tả.  
-…Nhưng chỉ trong chốc lát, bởi rồi không hiểu sao Aoko lại thấy bực mình trở lại.
+Soujyuro trông lúng túng thế này thì khác hẳn với dáng vẻ vô cảm trước đó, như thể trở thành một người khác vậy.
+Không còn vẻ mặt bất động chẳng phản ứng gì với lời cô nói, điều đó khiến Aoko bất giác cảm thấy một thứ gần gũi khó tả.
+Nhưng chỉ trong chốc lát, bởi rồi không hiểu sao Aoko lại thấy bực mình trở lại.
 
 “Rồi, vội gì chứ?
-
 Đừng nói với tôi là não cậu nhỏ quá, không nhớ nổi hết đống này nhé.”
 
-“Ờ thì, cũng có phần như thế… nhưng quan trọng là sắp một giờ rồi mới đáng lo.”
+“Ờ thì, cũng có phần như thế nhưng quan trọng là sắp một giờ rồi mới đáng lo.”
 
-Soujyuro khẽ đưa mắt nhìn đi chỗ khác, trông như đang lo lắng chuyện gì đó.  
+Soujyuro khẽ đưa mắt nhìn đi chỗ khác, trông như đang lo lắng chuyện gì đó.
 Nếu cậu ta lo về thời tiết thì cũng bó tay, vì hành lang này chẳng có cái cửa sổ nào để nhìn ra ngoài.
 
-“…Ồ. Lo đến giờ nghĩa là cậu còn việc gì khác à?  
-Hay nhỉ. Tôi bỏ thời gian của mình ra vì cậu, vậy mà cậu chẳng buồn ở lại cho tử tế.  
+“Ồ. Cậu còn việc gì khác à?
+Hay nhỉ. Tôi bỏ thời gian của mình ra vì cậu, vậy mà cậu chẳng thèm ở lại cho tử tế.
 Cậu giỏi thật đấy, cậu biết không?”
 
 “Ờm… cảm ơn… chắc vậy? Cậu khen mình à? Thật tốt bụng.”
@@ -904,7 +907,7 @@ Aoko không kìm được cơn giận, liền quát ầm lên.
 
 “Rồi sao?”
 
-“Hửm? Ý cậu là gì”
+“Hửm? Ý bạn là gì”
 
 “Rốt cuộc, hai mươi phút nữa cậu còn chuyện gì?”
 
@@ -914,21 +917,21 @@ Hiểu ra ý mà Aoko muốn hỏi, Soujyuro “À” lên một tiếng, gật 
 
 Cậu ta đáp tỉnh bơ, dù câu trả lời nghe chả nghiêm túc chút nào.
 
-(Trời ạ… Vừa nghĩ là mình bắt đầu quen với tên này thì hắn lại làm mình phát điên lên được…), \*Aoko thấy đau đầu với tên nhà quê này\*
+(Trời ạ… Vừa nghĩ là mình bắt đầu quen với tên này thì hắn lại làm mình phát điên lên được…)
 
-Tất nhiên, bực bội thế cũng là điều dễ hiểu.  
+Tất nhiên, bực bội thế cũng là điều dễ hiểu.
 Dù vậy, Aoko vẫn cố nuốt cục tức xuống và gắng gượng nặn ra một nụ cười thật tươi.
 
-“Cậu muốn lặp lại câu đó không đấy, Shizuki?”
+“Cậu muốn lặp lại câu đó không đấy, Sizuki?”
 
 Aoko tiến lên một bước.
 
 “Mình đã nói rồi, bí mật mà.”
 
-Cảm thấy bầu không khí bỗng dưng trở nên đáng sợ, Soujyuro liền lùi lại một bước.  
-Rồi lại lùi thêm… rồi thêm nữa…
+Cảm thấy bầu không khí bỗng dưng trở nên đáng sợ, Soujyuro liền lùi lại một bước.
+Rồi lại lùi thêm...  thêm nữa.
 
-Dù cậu ta lùi bao nhiêu bước đi nữa, Aoko vẫn tiến sát như một cái nam châm hút chặt cậu ta.  
+Dù cậu ta lùi bao nhiêu bước đi nữa, Aoko vẫn tiến sát như một cái nam châm hút chặt cậu ta.
 Trên mặt cô vẫn giữ nụ cười, nhưng Soujyuro có cảm giác như máu cô đang sôi lên dưới lớp da ấy.
 
 “Câu hỏi cuối cùng đây.  
@@ -936,15 +939,15 @@ Cậu thấy trêu chọc tôi vui lắm à?”
 
 Cậu ta thề với trời là bản thân chẳng hề có ý chọc ghẹo cô, nhưng dù cậu có chứng minh mình vô tội thế nào đi nữa thì cái nụ cười gượng gạo kia của Aoko cũng chẳng biến mất được.
 
-“…Được rồi, để mình giải thích.”
+“Được rồi, để mình giải thích.”
 
-Soujyuro giơ tay đầu hàng.  
+Soujyuro giơ tay đầu hàng.
 Aoko cũng dừng bước, xóa đi nụ cười gượng chẳng giống ai trên mặt.
 
-“Thật ra thì… mình có ca làm thêm bắt đầu từ một giờ.  
-Nhưng mà… ở đây học sinh bị cấm làm thêm đúng không?”
+“Thật ra thì mình có ca làm thêm bắt đầu từ một giờ.
+Nhưng mà ở đây học sinh bị cấm làm thêm đúng không?”
 
-“Ừ thì… đúng là cấm thật… Khoan đã, ý cậu là định giấu vì sợ bị phạt á? Chỉ cần xin phép đàng hoàng là được chứ có sao đâu, baka!”
+“Ừ thì đúng là cấm thật. Khoan đã, ý cậu là định giấu vì sợ bị phạt á? Chỉ cần xin phép đàng hoàng là được chứ có sao đâu, baka!”
 
 “Mình biết chứ. Mình đã xin phép luôn lúc làm bài thi đầu vào rồi.”
 
@@ -953,82 +956,82 @@ Nhưng mà… ở đây học sinh bị cấm làm thêm đúng không?”
 Aoko giật mình, bừng tỉnh, nhận ra tên này cũng chu toàn hơn cô tưởng.  
 Nhưng…
 
-“Nhưng mà… mình chỉ xin được phép cho một chỗ làm thôi.”
+“Nhưng mà mình chỉ xin được phép cho một chỗ làm thôi.”
 
-“Hả? Ý cậu là… cậu đang làm nhiều việc một lúc á?”
+“Chờ chút? Cậu đang làm nhiều việc một lúc á?”
 
-“…Mình cũng đã nghỉ bớt hai chỗ rồi đấy chứ.  
+“Mình cũng đã nghỉ bớt hai chỗ rồi đấy chứ.
 Chỉ trang trải sinh hoạt phí thôi cũng đã khổ lắm rồi, giờ còn phải kiếm tiền đóng học nữa. Vậy mà họ chỉ cho mình làm một chỗ, cậu thấy có quá đáng không?”
 
-“…Không. Tôi thấy người quá đáng ở đây là cậu đấy.”
+“Không. Tôi thấy người quá đáng ở đây là cậu đấy.”
 
-Dù vẫn còn bực bội, nhưng Aoko cũng có phần nhìn cậu ta khác đi một chút.  
-Cô thầm nghĩ thật đáng nể khi cậu ta có thể tự lo được cả học phí lẫn sinh hoạt phí.  
-Những chuyện kiểu chẳng còn thời gian rảnh cho bản thân thế này lại đúng điểm yếu của Aozaki Aoko, chỉ vậy thôi cũng đủ làm cơn giận khi nãy nguôi ngoai phần nào.  
-…Thật ra làm cô mất bình tĩnh đến thế chỉ vì cô không ngờ được từ miệng tên nhà quê này lại thốt ra được chữ “làm thêm” mà thôi.
+Dù vẫn còn bực bội, nhưng Aoko cũng có phần nhìn cậu ta khác đi một chút.
+Cô thầm nghĩ thật đáng nể khi cậu ta có thể tự lo được cả học phí lẫn sinh hoạt phí.
+Những chuyện kiểu chẳng còn thời gian rảnh cho bản thân thế này lại đúng điểm yếu của Aozaki Aoko, chỉ vậy thôi cũng đủ làm cơn giận khi nãy nguôi ngoai phần nào.
+Thật ra làm cô mất bình tĩnh đến thế chỉ vì cô không ngờ được từ miệng tên nhà quê này lại thốt ra được chữ “làm thêm” mà thôi.
 
-“…Nếu là chuyện vậy thì đành chịu thôi nhỉ.  
+“Nếu là chuyện vậy thì đành chịu thôi nhỉ.  
 Được rồi, cậu đi đi. Tôi hiểu hoàn cảnh của cậu rồi.”
 
-“Thế… còn Aozaki, cậu sẽ ổn chứ?”
+“Thế còn Aozaki, cậu sẽ ổn chứ?”
 
-Aoko khẽ nhíu mày. Cô chẳng hiểu cậu ta đang lo lắng điều gì, nhưng ít nhất cũng nhận ra cậu đang cố quan tâm đến mình.  
-…Vậy mà lại làm cô hơi bất ngờ.  
-Cứ tưởng với cái kiểu khù khờ của cậu ta thì chuyện thấu hiểu lòng người cũng nằm ngoài tầm với chứ. Ai ngờ…
+Aoko khẽ nhíu mày. Cô chẳng hiểu cậu ta đang lo lắng điều gì, nhưng ít nhất cũng nhận ra cậu đang cố quan tâm đến mình.
+Vậy mà lại làm cô hơi bất ngờ.
+Cứ tưởng với cái kiểu khù khờ của cậu ta thì chuyện thấu hiểu lòng người cũng nằm ngoài tầm với chứ. Ai ngờ.
 
 “Không sao. Tôi cũng tính về thẳng luôn mà.”
 
-Dù vậy, cô vẫn nghĩ ít ra cả hai nên ghé qua phòng giáo viên một chút.  
-Nhưng mà… nghĩ lại thì, thôi, khỏi cần khách sáo cho mất công.  
-Dù gì thầy Yamasiro cũng bảo mấy thủ tục chuyển trường đều xong hết rồi, phần còn lại chỉ là mấy câu chào hỏi xã giao chiếu lệ thôi.
+Dù vậy, cô vẫn nghĩ ít ra cả hai nên ghé qua phòng giáo viên một chút.
+Nhưng mà nghĩ lại thì, thôi, khỏi cần khách sáo cho mất công.
+Thầy Yamasiro cũng bảo mấy thủ tục chuyển trường đều xong hết rồi, phần còn lại chỉ là mấy câu chào hỏi xã giao chiếu lệ thôi.
 
 “Em đã dẫn cậu ấy đi tham quan xong rồi ạ.”
 
-“Vất vả rồi. Cả em nữa, Shizuki, cảm ơn nhé. Thế, đi một vòng trường rồi, cảm nhận thế nào?”
+“Vất vả rồi. Cả em nữa, Sizuki, cảm ơn nhé. Thế, đi một vòng trường rồi, cảm nhận thế nào?”
 
-“Cảm ơn thầy đã cho em tham quan. Nó… đúng là trường học thật đấy ạ!”
+“Cảm ơn thầy đã cho em tham quan. Nó đúng là trường học thật đấy ạ!”
 
 "Hahaha, thế thì tốt rồi. Được rồi, mai bắt đầu cố gắng nhé!”
 
-“Cậu đừng bận tâm đến thầy Yamasiro làm gì.  
-Thầy ấy thuộc dạng mê phòng giáo viên lắm, suốt ngày ngồi rung đùi trong đó rồi sai học sinh làm mấy việc phiền phức thay. Tôi cá thầy ấy có thể ngồi lì ở đó cả tiếng đồng hồ cũng được.  
-Mà nghĩ lại thì… như vậy cũng khôn đấy chứ.”
+“Cậu đừng bận tâm đến thầy Yamasiro làm gì.
+Thầy ấy thuộc dạng mê phòng giáo viên lắm, suốt ngày ngồi rung đùi trong đó rồi sai học sinh làm mấy việc phiền phức thay. Tôi cá thầy ấy có thể ngồi lì ở đó cả tiếng đồng hồ cũng được.
+Mà nghĩ lại thì như vậy cũng khôn đấy chứ.”
 
 “Được rồi, Aozaki. Cậu thấy ổn thì mình cũng không sao.”
 
 “Hả?”
 
 Lại nữa rồi.  
-…Rốt cuộc cậu ta thấy cái gì “ổn” chứ?  
+Rốt cuộc cậu ta thấy cái gì “ổn” chứ?
 Dù có cố đoán thế nào, Aoko cũng chẳng hiểu nổi Soujyuro đang định nói gì.
 
 “Thế thì mình đi đây. Hôm nay cảm ơn cậu nhé.”
 
 “Ừ, hôm nay thôi đấy, chỉ hôm nay thôi đấy!”
 
-Cô phẩy tay ra hiệu “Đi mau đi!” như muốn đuổi anh ta đi cho khuất mắt.  
-Nhưng không hiểu sao, Soujyuro lại bật cười, khuôn mặt bừng lên vẻ vui vẻ, như thể cậu ta thấy cử chỉ ấy của Aoko rất đáng yêu vậy.
+Cô phẩy tay ra hiệu “Đi mau đi!” như muốn đuổi anh ta đi cho khuất mắt.
+Không hiểu sao Soujyuro lại bật cười như thể cậu ta thấy cử chỉ ấy của Aoko rất đáng yêu vậy.
 
-Biểu cảm đó trông dịu dàng hơn nhiều so với gương mặt ngây ngô thường trực mà cô đã quen thấy ở cậu.  
-Nụ cười ấy dễ lan truyền đến mức khiến ai nhìn cũng muốn mỉm cười đáp lại.  
-Mà, “ai” thì là hầu hết mọi người…  
+Biểu cảm đó trông dịu dàng hơn nhiều so với gương mặt ngây ngô thường trực mà cô đã quen thấy ở cậu.
+Nụ cười ấy dễ lan truyền đến mức khiến ai nhìn cũng muốn mỉm cười đáp lại.
+Mà, “ai” thì là hầu hết mọi người.
 Chỉ có điều, Aozaki Aoko thì tuyệt nhiên chẳng để lộ lấy một nét cười nào đáp lại cả.
 
 “Vậy thì, hẹn gặp lại.”
 
 “Hả?”
 
-Để lại một câu tạm biệt nghe cứ như chào tạm biệt bạn thân từ thuở nào, Soujyuro quay lưng đi về cuối hành lang…  
+Để lại một câu tạm biệt thân thiện, Soujyuro quay lưng đi về cuối hành lang.
 Ít ra Aoko đã nghĩ vậy, cho đến khi cậu ta lại rẽ ngay vào lớp học kế bên.
 
 “Cậu ta vừa…?”
 
-“Chờ đã ....”
-
-Soujyuro tiến thẳng về phía cửa sổ trong lớp học.  
+Soujyuro tiến thẳng về phía cửa sổ trong lớp học.
 Và rồi, cậu ta thản nhiên mở tung cánh cửa sổ ra.
 
-Làn gió se lạnh của tháng Mười Một ùa vào phòng, kéo theo âm thanh mưa rơi vốn mờ nhạt bỗng trở nên rõ ràng gấp bội.  
+“Chờ đã ....”
+
+Làn gió se lạnh của tháng Mười Một ùa vào phòng, kéo theo âm thanh mưa rơi vốn mờ nhạt bỗng trở nên rõ ràng gấp bội.
 Chỉ trong khoảnh khắc ấy, Aozaki Aoko đã kịp nhận ra ý định của cậu ta khi mở cửa sổ, và cô chỉ ước mình đừng nhận ra thì hơn.
 
 “Không, dừng lại! Dừng! Dừng ngay, DỪNG LẠI!!!”
@@ -1039,13 +1042,14 @@ Cậu ta đã kịp đưa một chân ra ngoài cửa sổ thì Aoko lao đến 
 
 “Làm gì à? Thì mình đi làm thêm chứ còn gì nữa.”
 
-“Cậu có biết cái cửa sổ này không phải chỗ để người ta chui ra vào không hả!? Với lại, cậu có biết đây là tầng mấy không!?”
+“Cậu có biết cái cửa sổ này không phải chỗ để người ta chui ra vào không hả!?
+Với lại, cậu có biết đây là tầng mấy không!?”
 
 Nghe cô nói vậy, Soujyuro mới “À…” một tiếng như vừa ngộ ra điều gì đó.
 
-“…Trời đất ơi, suýt nữa thì chết. Ai mà lại đặt lối ra ở chỗ này chứ!? Nguy hiểm thật.”
+“Trời đất ơi, suýt nữa thì chết. Ai mà lại đặt lối ra ở chỗ này chứ!? Nguy hiểm thật.”
 
-“Thứ nguy hiểm là cái đầu của cậu thì có…”
+“Thứ nguy hiểm là cái nằm giữa hai lỗi tai của cậu đó.”
 
 Dù buột miệng mắng như vậy trong cơn bất lực, nhưng may sao Soujyuro chẳng nghe thấy gì cả.
 
@@ -1053,49 +1057,50 @@ Dù buột miệng mắng như vậy trong cơn bất lực, nhưng may sao Souj
 
 “À, mình biết mà. Chỉ là vì gấp quá nên tôi mới định làm vậy thôi. Cảm ơn nhé, từ giờ mình sẽ cẩn thận hơn.”
 
-Cậu ta từ từ rút chân lại khỏi khung cửa sổ rồi đóng cửa sổ lại.  
+Cậu ta từ từ rút chân lại khỏi khung cửa sổ rồi đóng cửa sổ lại.
 Bộ đồng phục mới toanh vừa mặc đã ướt sũng vì dính mưa.
 
-“...Tôi không quan tâm đâu.  
+“Tôi không quan tâm đâu.  
 Cậu muốn ra ngoài bằng đường nào thì tuỳ ý cậu.  
-Chỉ là, nếu được thì từ giờ đừng làm mấy trò đó trước mặt tôi nữa.
+Chỉ là, nếu được thì từ giờ đừng làm mấy trò đó trước mặt tôi nữa."
 
-Vậy còn chuyện khác… Cậu thật sự sẽ đi học từ ngày mai chứ?”
+"Dù sao thì. Cậu thật sự sẽ đi học từ ngày mai chứ?”
 
-“Ừ, chắc chắn rồi. Dù hơi lo một chút… nên mới đến sớm để được cậu dẫn đi tham quan còn gì.”
+“Ừ, chắc chắn rồi. Dù hơi lo một chút nên mới đến sớm để được cậu dẫn đi tham quan còn gì.”
 
-"Vậy nhé", cậu ta nói xong liền chạy vụt đi dọc hành lang.  
+"Vậy nhé", cậu ta chào tạm biệt rồi chạy vụt đi dọc hành lang.  
 Cô chỉ mong lần này cậu ta sẽ xuống cầu thang rồi ra ngoài bằng cửa chính như một người bình thường.
 
-“…Haizz. Thật sự không biết cậu ta sẽ ổn nổi ở đây không nữa."
+“Haizz. Thật sự không biết cậu ta sẽ ổn nổi ở đây không nữa."
 
-Vừa thở dài ngao ngán, cô vừa nhớ lại bóng lưng cậu ta chạy khuất dần.  
-Rõ ràng cô chẳng muốn dính dáng gì thêm với cái gã nhà quê đó nữa, vậy mà chẳng hiểu sao lại thấy bận lòng.  
+Vừa thở dài ngao ngán, cô vừa nhớ lại bóng lưng cậu ta chạy khuất dần.
+Rõ ràng cô chẳng muốn dính dáng gì thêm với cái gã nhà quê đó nữa, vậy mà chẳng hiểu sao lại thấy bận lòng.
 Chính cô cũng không biết cảm giác này là do lo lắng, hay chỉ đơn giản là bực bội mà thôi.
 
-Ngay từ đầu, cô cũng không hiểu vì sao mình lại tức giận với một cậu sinh chuyển trường chẳng có gì quan trọng kia.  
-Một ngày kỳ lạ, một học sinh chuyển trường kỳ lạ, và những cảm xúc cũng kỳ lạ.  
+Ngay từ đầu, cô cũng không hiểu vì sao mình lại tức giận với một cậu sinh chuyển trường chẳng có gì đặc biệt kia.
+Một ngày kỳ lạ, một học sinh chuyển trường kỳ lạ, và những cảm xúc cũng kỳ lạ.
 Khi ngoảnh lại, cô khẽ nghiêng đầu, tự hỏi liệu đáng lẽ ra mình không nên tức giận mà nên tận hưởng mọi thứ mới phải.
 
-“Thôi, cũng kệ.”
+“Thôi kệ.”
 
 Cô khẽ lẩm bẩm.
 
 “Dù sao thì cũng sẽ chẳng gặp lại cậu ta nữa.”
 
-Âm thanh mưa rơi vang vọng khẽ khàng khắp xung quanh cô.  
+Âm thanh mưa rơi khẽ vang vọng xung quanh cô.
 Bầu trời xám xịt như thể làm đông cứng cả dòng chảy thời gian.  
-Thật khó để phân biệt được bây giờ là buổi sáng hay buổi chiều.  
-Có lẽ, trong ngôi trường rộng lớn này, chỉ còn lại mỗi cô và thầy Yamasiro.  
-Phòng học tối om không bật đèn, khi chỉ còn lại một mình, trông càng trở nên u ám và có chút rờn rợn.
+Thật khó để phân biệt được bây giờ là buổi sáng hay buổi chiều.
+Có lẽ, trong ngôi trường rộng lớn này, chỉ còn lại mỗi cô và thầy Yamasiro.
+Phòng học tối om không bật đèn, khi chỉ còn lại một mình, trông càng trở nên u ám và có chút rùng rợn.
 
 Cô khẽ kéo tay áo bên trái lên.  
 Chiếc đồng hồ nhỏ, giản dị không chút trang trí trên cổ tay cho thấy quả thật đã gần một giờ chiều.
 
-“...Đúng thật, cậu ta nói giờ chuẩn thật.”
+“Cậu ta nói giờ đúng thật.”
 
-Lẩm bẩm như vậy, Aoko đưa mắt nhìn xuống sân trường qua ô cửa sổ.  
-Trong cơn mưa phùn, cô thấy một cậu học sinh mặc đồng phục đang chạy băng qua sân mà chẳng mang theo dù. Một hình ảnh vốn quen thuộc, thế nhưng chẳng hiểu sao, lần này lại để lại trong cô một ấn tượng sâu đậm đến mức khó chịu.
+Lẩm bẩm như vậy, Aoko đưa mắt nhìn xuống sân trường qua ô cửa sổ.
+Trong cơn mưa phùn, cô thấy một cậu học sinh mặc đồng phục đang chạy băng qua sân mà chẳng mang theo dù.
+Một hình ảnh vốn quen thuộc, thế nhưng chẳng hiểu sao, lần này lại để lại trong cô một ấn tượng sâu đậm đến mức khó chịu.
 
 ## Một ngày thường 2
 
