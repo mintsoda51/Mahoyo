@@ -1107,34 +1107,34 @@ Một hình ảnh vốn quen thuộc, thế nhưng chẳng hiểu sao, lần nà
 Aoko giữ đúng như lời đã nói trước đó, cô không ghé qua phòng giáo viên mà thẳng đường trở về nhà.  
 Đề nghị “Để thầy đưa em về bằng xe nhé” của thầy Yamasiro quả thật cũng khá hấp dẫn, nhưng cuối cùng cô lại thấy thỏa mãn hơn khi phá hỏng nốt ngày nghỉ của ông thầy như một cách trả đũa nho nhỏ cho việc ông đã phá hỏng ngày nghỉ của cô.
 
-Cô bước thật khẽ về phía cửa ra vào rồi nhẹ nhàng mở chiếc ô màu đỏ tươi của mình.  
-Đúng như dự báo lúc sáng, mưa đã bắt đầu ngớt dần khi quá trưa.  
-Với tình hình này, có lẽ chỉ một tiếng nữa thôi là mưa sẽ tạnh hẳn.  
+Cô bước thật khẽ về phía cửa ra vào rồi nhẹ nhàng mở chiếc ô màu đỏ tươi của mình.
+Đúng như dự báo lúc sáng, mưa đã bắt đầu ngớt dần khi quá trưa.
+Với tình hình này, có lẽ chỉ một tiếng nữa thôi là mưa sẽ tạnh hẳn.
 Khi Aoko về đến nhà, chắc ánh nắng từ bầu trời xa kia cũng vừa kịp lan đến, thay chỗ cho cơn mưa vừa dứt.
 
-"…Mà thôi, thế này cũng chẳng tệ chút nào."
+"Mà thôi, thế này cũng chẳng tệ chút nào."
 
-Cô khẽ nhún vai như thể tự cam chịu với tình huống.  
+Cô khẽ nhún vai cam chịu với tình cảnh này.
 Mưa đối với Aoko chẳng phải thứ gì đặc biệt để yêu hay ghét, nhưng việc cầm chiếc ô đỏ này, vừa đi vừa nghe tiếng mưa rơi, lại khiến cô thấy chuyến đi bộ về nhà hôm nay có chút thú vị.
 
-Các giáo viên ở trường trung học Misaki vốn chẳng ưa những thứ màu mè, nên chiếc ô đỏ của Aoko thật sự là một cảnh tượng hiếm thấy.  
-Đã có thời gian lan truyền một câu chuyện ma rằng “cái ô của Aozaki ngày xưa vốn trắng tinh”, nhưng câu chuyện ấy chẳng có ma quỷ nào cả, thay vào đó, “hồn ma” lại chính là Aoko.  
+Các giáo viên ở trường trung học Misaki vốn chẳng ưa những thứ màu mè, nên chiếc ô đỏ của Aoko thật sự là một cảnh tượng hiếm thấy.
+Đã có thời gian lan truyền một câu chuyện ma rằng “cái ô của Aozaki ngày xưa vốn trắng tinh”, nhưng câu chuyện ấy chẳng có ma quỷ nào cả, thay vào đó, “hồn ma” lại chính là Aoko.
 Với chiếc ô mang lời đồn như thế, Aoko cứ thế bước đi trong mưa, hướng về ga Misaki.
 
-Ngôi trường tư thục Misaki High mà cô đang theo học nằm ở thành phố Misaki, đúng như tên gọi của nó.  
-Thị trấn Misaki vốn dĩ phần lớn chỉ toàn ruộng vườn và rừng cây, nhưng suốt mười năm trở lại đây, nhờ làn sóng phát triển nhanh chóng như thời kỳ tăng trưởng cao độ, nơi này đã hiện đại hóa một cách chóng mặt.
+Ngôi trường tư thục Misaki mà cô đang theo học nằm ở thị trấn Misaki, đúng như tên gọi của nó.
+Thị trấn Misaki vốn dĩ phần lớn chỉ toàn ruộng vườn và rừng cây, nhưng suốt mười năm trở lại đây, nhờ làn sóng phát triển nhanh chóng như thời kỳ tăng trưởng, nơi này đã hiện đại hóa một cách chóng mặt.
 
-Cũng đã từng có ý kiến cho rằng nên giữ lại vẻ thiên nhiên vốn có của thị trấn Misaki.  
-Nhưng chỉ với một câu nói của ngài thị trưởng: “Tôi hoàn toàn đồng ý với việc bảo tồn, nhưng nếu làm vậy thì chúng ta chỉ giữ lại được di tích mà thôi.”  
+Cũng đã từng có ý kiến cho rằng nên giữ lại vẻ thiên nhiên vốn có của thị trấn Misaki.
+Nhưng chỉ với một câu nói của ngài thị trưởng: “Tôi hoàn toàn đồng ý với việc bảo tồn, nhưng nếu làm vậy thì chúng ta chỉ giữ lại được di tích mà thôi.”
 Những tiếng nói thiểu số lập tức bị dập tắt, nhường chỗ cho kế hoạch dài hạn xây dựng một thành phố mới.
 
-Kinh phí dành cho việc phát triển đô thị đã được quyên góp với số tiền dư dả hơn mức cần thiết,  
+Kinh phí dành cho việc phát triển đô thị đã được cấp dư dả hơn mức cần thiết,  
 và thị trấn Misaki, vốn chỉ là một nơi bình thường, đã trở thành khu vực lớn nhất đại diện cho thành phố Misaki chỉ trong vỏn vẹn mười năm.
 
-…Tuy nhiên, xét về mức độ hiện đại thì vẫn kém một bậc so với thành phố Yashirogi lân cận,  
+Tuy nhiên, xét về mức độ hiện đại thì vẫn kém một bậc so với thành phố Yashirogi lân cận,
 mà về nét thanh lịch, sang trọng thì lại càng thua kém Misakigaoka, cũng là thành phố láng giềng.
 
-“… Ừ thì, cũng là chuyện đương nhiên thôi. Dù có chỉnh sửa thế nào thì vốn dĩ đây vẫn chỉ là một thị trấn trạm nghỉ giữa núi. Trừ khi san phẳng cả ngọn núi thì may ra mới khác đi được.”
+“Ừ thì, cũng là chuyện đương nhiên thôi. Dù có chỉnh sửa thế nào thì vốn dĩ đây vẫn chỉ là một thị trấn trạm nghỉ giữa núi. Trừ khi san phẳng cả ngọn núi thì may ra mới khác đi được.”
 
 Việc đô thị hoá cũng chỉ tập trung ở vùng đất bằng quanh ga, còn đồi núi thì vẫn y như mười năm về trước.
 
@@ -1142,20 +1142,20 @@ Thứ gọi là thị trấn Misaki xưa cũ ấy, dẫu người dân không th
 
 Thế là Misaki đang dần trở thành một đô thị vùng ven nửa mùa, vừa đủ để dân từ thành phố đổ về mà không bị chê là quê mùa lạc hậu, nhưng cũng chẳng thể coi là hiện đại hẳn.
 
-Trường Cao Trung Misaki là một trường tư thục đã tồn tại từ trước khi thành phố Misaki phát triển như bây giờ.  
-Khuôn viên gốc được xây dựng cách đây năm mươi năm nằm sâu trên núi, nên cơ sở hiện tại được coi như ngôi trường thứ hai của nó.
+Trường Cao Trung Misaki là một trường tư thục đã tồn tại từ trước khi thành phố Misaki phát triển như bây giờ.
+Khuôn viên gốc được xây dựng cách đây 50 năm nằm sâu trên núi, nên cơ sở hiện tại được coi như ngôi trường thứ hai của nó.
 
-Đường lên khu trường cũ thì vừa xa xôi, dốc lại cao,  
+Đường lên khu trường cũ thì vừa xa xôi, dốc lại cao,
 mà trước hết, con đường đến trường đã thành lối mòn cho thú rừng qua lại rồi.
 
-Vì nhiều lý do khác nhau, trường cao trung Misaki đã bị đóng cửa cho đến khoảng hai mươi năm trước.  
-Nhờ khoản quyên góp từ một tập đoàn bách hóa đặt trụ sở tại thành phố Misaki, trường đã xây dựng được khu học xá mới trong thành phố.  
-Thế là khu trường cũ trong rừng dần bị lãng quên như một tàn tích, còn trường cao trung Misaki thì lại một lần nữa mở cửa đón học sinh.
+Vì nhiều lý do khác nhau, trường cao trung Misaki đã bị đóng cửa cho đến 20 năm trước.
+Nhờ khoản quyên góp từ một tập đoàn bách hóa đặt trụ sở tại thành phố Misaki, trường mới đã được xây dựng trong thành phố, lại một lần nữa mở cửa đón học sinh. 
+Còn trường cũ trong rừng dần bị lãng quên như một tàn tích.
 
-Thật ra mà nói, phần lớn học sinh theo học trường cao trung Misaki vốn chẳng phải dân Misaki.  
+Thật ra mà nói, phần lớn học sinh trường cao trung Misaki vốn chẳng phải dân Misaki.
 Những người dân chất phác, hiền lành ở thị trấn vùng quê này vẫn thích gửi con em mình vào trường công lập của tỉnh hơn là trường tư.
 
-Thật ra mà nói, Aoko cũng chẳng khác gì bọn họ.  
+Thật ra mà nói, Aoko cũng chẳng khác gì bọn họ.
 Ngay từ lúc tốt nghiệp cấp hai, cô đã ôm ấp một ước mơ giản dị: sẽ lên Tokyo, vừa phấn đấu thi đỗ một trường đại học công lập, vừa rong ruổi khắp các phòng hòa nhạc sống, để những buổi đêm trôi đi cùng tiếng đàn và tiếng trống.
 
 Ấy vậy mà, chỉ vì người chị đi trước một bước, giấc mơ ấy đành vỡ tan. Thế là, thay vì tận hưởng trọn vẹn ngày kỷ niệm thành lập trường, cô lại cầm chiếc ô đỏ, lủi thủi một mình giữa phố xá, như thể tự mình gánh chịu phần ngang trái của thế gian.
